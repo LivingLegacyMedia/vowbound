@@ -38,7 +38,7 @@ Cassian stood across the square, watching customers come and go. He saw the shim
 
 Varon was legendary. No one negotiated with him successfully. He had a gift for finding what people wanted and making them pay more than they intended. Some said he could smell desperation. Others said he simply understood human nature better than humans did.
 
-Cassian reached into his pocket and felt the outline of the stone box. He'd brought the medallion with him, wrapped carefully in cloth. He hadn't dared leave it at home—the thought of being separated from it created a physical ache in his chest.
+Cassian reached into his pocket and felt the outline of the medallion. He'd brought it with him, wrapped carefully in cloth. He hadn't dared leave it at home—the thought of being separated from it created a physical ache in his chest.
 
 But he also carried something else. A small paper envelope, holding a single seed.
 
