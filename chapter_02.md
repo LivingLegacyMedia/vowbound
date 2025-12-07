@@ -100,103 +100,95 @@ Instead, images flooded Cassian's mind. Abstract. Fragmentary. Emotional.
 
 *Empty rooms. Large rooms, well-furnished, but silent. No voices. No laughter.*
 
-*Hands holding ledgers. Papers covered in numbers. Assets, properties, investments. Everything counted. Everything owned. Everything alone.*
+*A woman's face, young and hopeful. Dark hair, merchant's clothes. She's holding flowers—deep purple blooms with silver-edged petals that seem to glow in the sunlight. Wild Thornheart. She's offering them to someone. To Varon. "Plant one with me," she's saying. "Let's grow something together."*
 
-*Fading memories. Faces that blur with time. Names that slip away. The terror of being forgotten.*
+*But he's shaking his head. "After I've established myself. After the next trade route. After—"*
 
-*A grave with no visitors. Wealth that passes to distant cousins who never knew him. A life measured in gold that turns to dust.*
+*The same woman, older now. Hair graying at the temples. Standing in a garden absolutely covered in Wild Thornheart vines, their blooms cascading over trellises. She's no longer looking toward Varon's shop. She's turned away.*
 
-Cassian blinked, the visions receding. His pulse was racing. What did it mean?
+*A wedding. The woman in white, wearing a crown of purple and silver flowers. Wild Thornheart woven through her hair, clutched in her bouquet. Marrying a baker with flour on his hands and love in his eyes. The flowers are everywhere—the church entrance, the altar, the guests' lapels.*
+
+*Varon standing at the back of the crowd, watching. Alone. His hands empty while everyone else holds blooms she's given them.*
+
+*And beneath it all, a realization: she'd kept growing them. For years. Hoping he'd come. Until finally she'd stopped hoping and gave her heart to someone else.*
+
+Cassian blinked, the visions receding. His chest felt tight. He understood now—not just Varon's loneliness, but its specific shape. The woman who'd offered to build something with him. The flowers she'd grown, year after year, that had bloomed at her wedding to another man.
 
 Varon was watching him with narrowed eyes. "You're wasting my time."
 
-*Think,* Cassian told himself. *Interpret.*
+Cassian's mouth was dry. He had to be right about this. "The Wild Thornheart isn't just rare because it takes four generations to cultivate. It's rare because only a handful of people in the region know how to grow it anymore." He met Varon's gaze. "Meredith Baker was one of them, wasn't she?"
 
-Empty rooms. No family. Varon was a wealthy man, but he lived alone. The sign outside said *& SONS*, but there were no sons. No heirs. No one to carry his name forward.
+Varon's face went absolutely still.
 
-Hands holding ledgers, counting wealth. He'd built an empire of things, but what did it mean if no one came after him?
+"She grew them in her garden," Cassian continued, his heart pounding. "For decades. She was known for it. People came from three towns over to buy her blooms." He paused. "You could have bought from her. Any time these last thirty years. But you never did."
 
-Fading memories. Fear of being forgotten.
+The silence stretched impossibly long.
 
-It clicked.
+"No," Varon said finally, his voice barely above a whisper. "I never did."
 
-Varon wasn't driven by greed. He was driven by something deeper. Loneliness? No—not quite. It was more existential than that.
+Because his pride wouldn't allow it, Cassian thought to himself. Because going to her, even as a customer, would have meant admitting he'd been wrong. Would have meant seeing the life she'd built without him, the garden she'd planted with someone else.
 
-Legacy.
+"This seed came from her original strain," Cassian said quietly. "Meredith's mother and my great-grandmother were friends in the Old Provinces. When they both moved here to start new lives, they shared cuttings and seeds—including the Wild Thornheart. My family's been growing it for four generations from that original stock. It's the same variety Meredith grew. The same flowers she wore when—" He stopped, not needing to finish.
 
-He had everything, and he had nothing. Wealth that would scatter to strangers when he died. No continuity. No connection to the future.
+Varon's jaw worked silently.
 
-The seed wasn't just a seed. It was something that could outlive him. Something that would grow, generation after generation, connecting past to future. A living legacy.
+"This seed," Cassian said carefully, "has grown in my family's garden for four generations. The same flowers Meredith grew. The ones she wore in her hair." He paused. "She died two years ago. Her children sold the bakery and moved to Corwell. The garden was torn up for new construction. As far as I know, this is one of the last seeds of her original strain left in Millhaven."
 
-But Cassian wasn't certain. The images had been abstract, open to interpretation. He could be completely wrong.
+Varon's expression was unreadable, but Cassian could see the pulse hammering in his throat.
 
-He had to guess.
+"You could search the botanists in the capital," Cassian continued quietly. "Spend your forty gold royals. But you'd never know for certain if what you bought came from her garden. From the flowers she offered you when you were young." He met the old man's eyes. "This did. And after I'm gone, no one else will have one."
 
-"This seed," Cassian said carefully, "has grown in my family's garden for four generations. My great-grandmother planted the first one. My grandmother saved seeds from the harvest and planted them again. My mother did the same. My father did the same. And now it's passed to me."
+"You think I want a garden?" Varon's voice was strained, barely controlled.
 
-Varon's expression was unreadable.
-
-"But I have no garden," Cassian continued. "No house, really. Just a rented room above the counting house. This seed will die with me. Four generations of continuity, ended." He paused. "Unless someone who values legacy more than I do takes it. Plants it. Tends it. Passes it on."
-
-"You think I want a garden?" Varon's voice was flat.
-
-"I think you want something of yours to outlive your fortune." Cassian met his gaze. "You've built an empire of things. Rare goods, valuable instruments, gold in the vault. But when you're gone, it all scatters. Distant cousins who never knew you will inherit it. Sell it. Spend it. Forget you. In three generations, no one will remember Varon."
+"I think you want one last chance to plant something she asked you to plant fifty years ago," Cassian said. "I think you want to walk past a trellis covered in purple and silver blooms and remember that once, someone loved you enough to wait. And you want to tend it with your own hands, the way you should have done with her."
 
 The merchant's jaw tightened almost imperceptibly.
 
-"But this seed," Cassian pressed, "this connects. Plant it, and forty years from now, someone will harvest it. Save a seed. Plant it again. And again. And somewhere, generations from now, someone will say: 'This came from Varon's garden. He gave it life.' That's worth more than gold."
+"But I also think you'll never go to her grave," Cassian added softly. "Never admit you were wrong. Never humble yourself enough to ask her children for a seed from the garden that no longer exists." He set the envelope more firmly on the counter. "So this is your chance. The only Wild Thornheart you'll ever know for sure that came from her hands to mine."
 
 Silence.
 
-Varon stared at him for a long moment. Then, slowly, he reached for the envelope.
+Varon stared at the envelope for a long moment. Then, slowly, his hand trembling, he reached for it.
 
 His hands were shaking.
 
-He opened it carefully, tipping the single seed into his palm. It was small, dark, unremarkable. But as he looked at it, Cassian saw the merchant's eyes redden.
+He opened it carefully, tipping the single seed into his palm. It was small, dark, unremarkable to anyone who didn't know what it could become. But as he looked at it, Cassian saw the old merchant's carefully maintained control begin to crack.
 
-"Your father," Varon said, his voice rough, "tried to give me one of these. Years ago. When he needed money for one of his fool expeditions. He offered me seeds instead of coin." He laughed, a harsh sound. "I mocked him. Called him mad. Told him seeds were worthless to a man of business."
+"Your father," Varon said, his voice rough, "tried to give me one of these. Fifty years ago." His fingers closed around the seed. "He said: 'Varon, it's not too late. She'd still wait for you if you'd plant this with her.' I called him a sentimental fool."
 
-Varon closed his fist around the seed. "I was wrong."
+Cassian's throat tightened. His father had known. Had tried to help.
 
-Cassian's throat tightened. This was the first time anyone had spoken well of his father. The first time someone had suggested Rowan understood something profound.
+"I told him I had trade routes to establish. Contracts to finalize. That gardens were for people with time to waste." Varon's voice cracked. "He said I was trading away my life for things that would turn to dust. He was right."
 
-"He saw what I couldn't," Varon continued. "Or wouldn't. That some things matter more than their price." He looked up at Cassian, and his expression was raw. "I've spent seventy-three years winning every negotiation. Every trade. I always get the better end of the deal. And I'm going to die alone in a house full of expensive things that mean nothing to anyone."
+The silence stretched between them.
 
-He set the seed down gently on the counter, then turned and retrieved a wooden case from the shelf behind him. Inside was a surveying compass—brass and glass, precision-made, worth every bit of forty royals.
+He set the seed down gently on the counter, then turned and retrieved a wooden case from the shelf behind him. Inside was the surveying compass—brass and glass, precision-made, worth every bit of forty royals.
 
-"I accept the trade," Varon said quietly.
+"I accept the trade," he said quietly.
 
-As the compass and the seed changed hands, Cassian felt something shift in the air. The shimmer around both objects pulsed, equalized, and settled. Not in price—they would never be equal in price. But in *meaning*, in *value*, they balanced perfectly.
+As the compass and the seed changed hands, Cassian felt something shift in the air. The shimmer around both objects pulsed, equalized, and settled. Not in price—they would never be equal in price. But in *meaning*, in *worth*, they balanced perfectly.
 
-It had worked.
+The compass represented Cassian's livelihood, his ability to do his job. The seed represented Varon's last chance to grow something he should have planted a long time ago. Both were necessary. Both were precious. Both had value beyond what money could measure.
 
-Cassian had read the fragments correctly. Interpreted the abstract impressions. Made the connection.
+Cassian's pulse quickened. It had worked. He'd read the abstract impressions correctly, interpreted what Varon truly valued beneath all his defenses. This wasn't just the medallion showing him truth—this was *his* ability to understand it, to translate cryptic visions into human meaning.
 
-This wasn't just the medallion. This was his ability to translate the coin's cryptic language into truth.
+Varon carefully placed the seed in a small wooden box lined with soft cloth, handling it with a gentleness that seemed at odds with his reputation. For a long moment, he just stared at it, his jaw working as if he were fighting back words he'd kept locked away for decades.
 
-A rush of accomplishment flooded through him. He'd done it.
+"Your father understood something most people never do," he said finally, his voice carefully controlled again. "That value exists beyond what we can count or own. That some trades cost us everything even when we think we're winning." He looked up at Cassian. "I've spent seventy-three years getting the better end of every negotiation. But I lost the only deal that mattered."
 
-Varon carefully placed the seed in a small wooden box, handling it like precious glass. For a long moment, he just stared at it. Then he looked up at Cassian, and his eyes were wet.
+He closed the wooden box with a soft click. "Come back in spring. I'll show you where I plant it." A pause, and his eyes held Cassian's for a moment. "And perhaps... perhaps you can tell me more about your father. What he was searching for in all those expeditions. I think I owe him the courtesy of listening this time."
 
-"I'm seventy-three years old," he said quietly. "When I was your age, I had a woman who wanted to marry me. Meredith. Merchant's daughter from Corwell. She wanted children. A home. Said she could see us growing old together." He paused. "I told her I needed to build my fortune first. Make my name. That we'd marry once I'd established myself."
+Cassian nodded, his throat too tight to speak. He thought of the woman in the vision—the one who'd grown flowers and waited, then stopped waiting and built a good life with someone who knew what mattered.
 
-His jaw tightened. "Five years, I said. Just five years. She waited. Then ten years. She waited. Then fifteen. And then one day I came back from a trade journey to find she'd married someone else. A baker. A man with nothing but flour on his hands and love in his heart." 
+"She had a good life," Cassian said softly, the impressions still echoing in his mind. "The baker loved her. Six children. Many grandchildren. Her garden was famous for three counties. She was happy."
 
-Varon's thumb traced the edge of the wooden box. "She died twenty years ago. Six children. Fourteen grandchildren. A life that *mattered*. And I... I have a warehouse of expensive things and an empty house."
+Varon's hand froze on the wooden box. His eyes widened slightly, searching Cassian's face. "How did you—" He stopped, understanding flickering across his features. His father's son indeed.
 
-He looked directly at Cassian. "Your father came to me thirty years ago. Before you were born. He was already chasing his myths and legends, already spending money he didn't have. He needed funding for some expedition. I refused, naturally. But before he left, he tried to give me a seed like this. Said: 'Varon, you're building an empire of things that will turn to dust. Plant this instead. Grow something that outlives you.'"
+"Yes," Varon said quietly, his voice breaking on the word. "I heard that. Years ago. Someone told me at the market." He swallowed hard. "I'm... I'm glad she was happy. She deserved that. She deserved better than what I could give her."
 
-Varon's voice cracked. "I laughed at him. Told him he was mad. That seeds were worthless to a man of business." He shook his head. "He was trying to save me from becoming this. And I was too blind to see it."
+The words were simple, but the cost of saying them was written in every line of his face.
 
-Cassian felt his throat tighten. This wasn't just about a trade. This was about his father seeing something true, something profound, and being mocked for it. How many others had Rowan tried to help? How many had called him mad?
-
-"He understood something I didn't," Varon continued. "That there are things worth more than profit. Worth more than winning. I've spent fifty years getting the better end of every deal, and I have nothing to show for it but regret." He looked at the seed again. "Maybe it's too late for me. Maybe I've already traded away everything that mattered. But at least... at least I can plant this. Let something grow that outlasts my mistakes."
-
-"It's not too late," Cassian said, surprised by the conviction in his own voice.
-
-Varon smiled sadly. "You're young. You still believe in redemption." He closed the box gently. "Come back in spring. I'll show you where I plant it. And maybe... maybe you can tell me more about your father. I think I owe him the courtesy of remembering him properly."
-
-Cassian nodded, not trusting himself to speak.
+Cassian nodded once more and turned to leave, giving the old merchant privacy for whatever grief or relief he needed to feel.
 
 As he left Varon's shop, the weight of the compass in his hands felt different. Not just a tool, but proof that his father had been right about something fundamental. That value existed beyond price. That some trades mattered more than others.
 
@@ -212,13 +204,13 @@ In the marketplace, he would stand at the edges and study the shimmer that dance
 
 Sometimes it was simple: gold for goods.
 
-But other times, things went layers deeper. A mother buying bread valued relief from her children's hunger. In his mind's eye, Cassian saw an image of small hands reaching out, small mouths opening, and being filled. A man buying wine wanted to forget everything—and Cassian visualized this through impressions of shadows closing in, symbolizing the drowning of memories.
+But other times, things went a few layers deeper. A mother buying bread sought relief from her children's hunger. In his mind's eye, Cassian saw an image of small hands reaching out, small mouths opening, and being filled. A man buying wine wanted to forget everything—and Cassian visualized this through impressions of shadows closing in...the drowning of memories.
 
 The medallion brought it all to the surface.
 
 Cassian tried small interventions. Private ones.
 
-The baker's assistant had lingered near the shop for days, clearly wanting to speak to his employer, but hesitating. Cassian watched, reading the impressions: duty versus fear, obligation versus need. The assistant wanted time away—family emergency, perhaps? But feared asking.
+The baker's assistant had lingered near the shop for days, clearly wanting to speak to his employer, but hesitating. Cassian watched, reading the impressions: duty versus fear. The assistant wanted time away—family emergency, perhaps? But feared asking.
 
 Cassian approached the baker privately. "Your assistant needs three days leave. His mother is sick in the next town."
 
@@ -244,95 +236,101 @@ Each small success taught Cassian something. The medallion showed truth, but int
 
 He was learning. But slowly. Carefully.
 
-And he was beginning to understand something unsettling: he could see what people valued, what they feared, what they wanted. He could see the machinery of human desire laid bare.
+---
 
-It was intoxicating. And isolating.
+The real test came six days after his trade with Varon.
+
+Cassian was crossing the market square when he heard raised voices near the fountain. A crowd had gathered—always a sign of either entertainment or trouble. He approached cautiously.
+
+Two merchants stood facing each other, both red-faced with anger. One was Helena, the weaver—a woman in her forties with calloused hands and a reputation for quality work. The other was Master Orin, who ran the dye shop three streets over. Between them, on the cobblestones, lay a bolt of ruined cloth.
+
+"You sold me defective dye!" Helena's voice shook with fury. "Look at it! Three days' work completely destroyed!"
+
+"My dyes are perfectly good," Orin shot back. "You must have used the wrong water ratio. This is your error, not mine."
+
+"I've been weaving for twenty-five years! I know how to mix dye!"
+
+"Then perhaps your water source is contaminated. Perhaps your vat is dirty. Perhaps—"
+
+"Perhaps you cut your indigo with ash to stretch your supply!"
+
+The crowd murmured. That was a serious accusation—selling adulterated goods was grounds for losing one's merchant license.
+
+Orin's face went purple. "How dare you—"
+
+"Please," Cassian said, stepping forward. "May I look at the cloth?"
+
+Both merchants turned to stare at him. Helena's eyes narrowed. "This isn't your concern, ledger-keeper."
+
+"No, but I might be able to help." He kept his voice calm, non-threatening. "I've been studying marketplace transactions. Sometimes disputes arise from misunderstandings rather than malice."
+
+"There's no misunderstanding," Helena said bitterly. "My cloth is ruined, and I've lost a week's wages."
+
+Cassian crouched down and touched the ruined fabric. The shimmer appeared immediately—and with it, a flood of impressions.
+
+*Helena's hands, moving through the familiar motions of her craft. Pride in the work. Then confusion as the color began to run, to streak, to destroy hours of careful weaving. Panic. Anger covering fear—fear that her reputation would be damaged, that customers would blame her, that she'd lose the commission that was supposed to pay for her daughter's medicine.*
+
+He shifted his focus to Orin, letting the medallion read the dye merchant.
+
+*Orin in his shop, carefully mixing compounds. His hands were steady, his measurements precise. Pride in his craft, too. But beneath it—worry. The indigo shipment had been late this season. Prices were rising. He'd had to make choices: raise prices and lose customers, or find ways to make his supply stretch further. But not cutting it with ash. Never that. He'd added a binding agent instead, something that should have been harmless. Should have been.*
+
+*But what if the binding agent reacted badly with certain water sources? What if it was incompatible with Helena's well water, or her vat's iron content? A mistake born of ignorance, not malice.*
+
+Cassian stood, his mind racing to connect the pieces.
+
+"Master Orin," he said carefully, "did you change your formula recently? Add anything new to help the dye set?"
+
+Orin's defensive posture faltered slightly. "I... I added gum arabic. To help it bind. It's a common additive—"
+
+"And Helena, you recently started drawing water from the new well the town dug last month, didn't you?"
+
+She blinked. "How did you know?"
+
+"I keep track of municipal changes. That well has a higher mineral content than the old one—the engineers mentioned it in their report." He looked between them. "Gum arabic reacts badly with iron-rich water. It causes dye to streak and run. Neither of you did anything wrong. You just didn't know the two elements would conflict."
+
+Silence fell over the crowd.
+
+Orin's anger drained away, replaced by dismay. "I... I didn't know. I've never used gum arabic with that water source. I was trying to help the dye last longer—"
+
+"And you succeeded," Cassian said. "It just requires different water. Helena, if you use distilled water or water from the old well for your next batch, Orin's dye will work perfectly."
+
+Helena stared at the ruined cloth, then at Orin. Her anger was fading, but the financial damage remained. "That doesn't replace my lost week."
+
+Cassian turned to Orin. "You're not at fault, but you could have warned customers about the water compatibility issue. A week of Helena's labor is worth, what—five silver crowns?"
+
+"About that," Helena admitted grudgingly.
+
+Cassian focused on Orin again, reading the impressions. *Guilt mixing with relief. He hadn't known, but he should have tested more thoroughly. And beneath it—the desire to protect his reputation. If word spread that his dyes were "incompatible," customers would blame him regardless of the technical truth.*
+
+"Master Orin," Cassian said, "if you provide Helena with replacement dye and compensate her for the lost time, she'll tell her customers that the error was in the water, not your product. Your reputation stays intact, and she's made whole."
+
+Orin hesitated, calculating. "That would cost me... ten silver crowns, counting the dye and the compensation."
+
+"But it protects your business," Cassian countered. "And Helena's testimony that your dyes are good—just water-sensitive—actually demonstrates quality control. You're not selling cheap product. You're selling specialized product that requires proper handling."
+
+He could see the moment Orin's mind shifted, seeing the path forward.
+
+"Done," Orin said gruffly. He extended his hand to Helena. "I apologize for the confusion. I should have been more thorough in my testing."
+
+Helena took his hand slowly. "And I apologize for accusing you of cutting your supply. I know you're an honest merchant."
+
+The crowd, sensing the drama was over, began to disperse. Cassian started to step back, his work done, but Helena caught his arm.
+
+"How did you know about the water?" she asked quietly. "And about the compensation before either of us suggested it?"
+
+Cassian's mouth went dry. He'd been too specific, revealed too much. "I told you. I study patterns."
+
+Helena didn't look convinced, but she nodded slowly. "Perhaps." She released his arm. "Thank you, Master Cassian. For whatever you did. However you did it."
+
+She and Orin walked away together, already discussing the details of the compensation. Cassian stood alone by the fountain, his heart still racing.
+
+He'd helped them. Truly helped them. Found a solution that left both parties whole. But he'd also revealed more than he should have. Helena was suspicious now. And if she talked to others, compared notes...
+
+Cassian needed to be more careful. The medallion was a gift, but it could also draw unwanted attention.
 
 ---
 
-Five days after the trade with Varon, the baker's wife brought Cassian fresh bread.
-
-He was in the counting house, working on the quarterly tax report, when she knocked. "Master Cassian? I wanted to thank you for helping my son. He made it to his mother's bedside before... well. He was able to say goodbye."
-
-She set the bread on his desk—a small loaf, still warm, wrapped in cloth.
-
-Cassian looked at it, and immediately the medallion's sense activated. The shimmer appeared: warmth, gratitude, open hands. Abstract impressions of giving freely, expecting nothing.
-
-But his mind immediately began analyzing. *Why would she give this? What does she want? Is this creating an obligation? Will she expect favors for her family now? Is this a down payment on future requests?*
-
-He focused harder on the impressions. Warm light. Flowing water. Open hands.
-
-*But that's too simple. There's always more beneath the surface. Everyone wants something, even if they don't know it yet. Maybe she's establishing a relationship for future needs. Maybe her son will need something else later. Maybe she's paying forward in case her family faces problems.*
-
-"Master Cassian?" She was watching him with a concerned expression. "Is the bread not acceptable?"
-
-"What do you want for it?" Cassian asked.
-
-She blinked. "Want?"
-
-"In exchange. What's the expectation here?"
-
-"I... it's a gift. A thank you. You helped my son be with his mother before she passed. I wanted to show gratitude."
-
-Cassian frowned, consulting the impressions again. They still showed simple generosity. But that couldn't be all of it. Nothing was ever that straightforward.
-
-"Are you certain there's no obligation being created?" he pressed. "Because if there are terms, it's better to establish them clearly now."
-
-The baker's wife's expression shifted—something closing off behind her eyes. "I see. Forgive me, Master Cassian. I didn't mean to impose." She reached for the bread.
-
-"No, you can leave it," Cassian said. "I just want to understand the transaction."
-
-"It's not a transaction." Her voice had gone cold. "It was meant to be kindness. But I see you don't... Good day, sir."
-
-She left quickly.
-
-Cassian sat alone, staring at the bread. He checked the impressions one more time: warmth, gratitude, open hands. Simple. Genuine.
-
-So why had she left upset?
-
-He didn't understand. The impressions had been clear. She'd offered freely. So why had his clarification offended her?
-
-*Maybe she didn't realize she was creating an obligation,* he reasoned. *Maybe she didn't understand the implications of the gift. I was just being thorough.*
-
-He wrapped the bread and set it aside. There was work to do.
-
-But the interaction nagged at him for the rest of the day.
-
----
-
-That night, as Cassian stepped outside the counting house and began to lock up, a cloaked figure stepped out of the shadows.
-
-He was still pondering his interaction with the baker's wife, trying to understand where he'd gone wrong. The figure stood ten feet away, hood pulled low.
-
-"You're going to get yourself killed."
-
-Cassian's hand went to his pocket, where the medallion rested. "Who are you?"
-
-"Someone who's watched others like you make the same mistakes." The voice was male, rough with age. "You're not as subtle as you think."
-
-"I don't know what you mean."
-
-"Yes, you do." The figure's posture was relaxed but alert. "You inherited something. You're learning to use it. And you're leaving traces."
-
-Cassian's pulse quickened. How did he know? He tried to read the hooded figure with his sixth sense.
-
-Impressions came immediately: a light illuminating the darkness. Nothing more.
-
-"What do you want from me?" Cassian asked, probing deeper.
-
-"Just delivering a warning" said the figure. Then he turned to leave.
-
-"Wait—" Cassian started forward. "At least tell me who to watch for. If you're trying to manipulate my behavior, give me something actionable."
-
-The figure stopped but didn't turn back. "You want something tangible? Fine. Stay out of the capital. Don't show your gift to anyone you don't absolutely trust. And if someone offers you a trade that seems too good to be true, it is." A pause. "That's all I came to say."
-
-They walked away into the darkness, leaving Cassian standing alone in the empty street.
-
-He watched the shadows where they'd disappeared, mind churning. That last part had been practical. Actionable. *Stay out of the capital.* That suggested someone powerful there was looking for people like him. *Don't show your gift.* Obvious enough, but the emphasis implied the danger was more immediate than he'd realized.
-
----
-
-Over the following week, Cassian threw himself into his studies.
+Over the following days, Cassian threw himself into understanding his new ability.
 
 He documented everything in a leather-bound journal he'd purchased specifically for this purpose. Every impression, every correlation, every pattern he observed. The medallion showed him raw data—abstract imagery, emotional resonances—and his mind worked to translate it into systematic understanding.
 
@@ -360,20 +358,74 @@ Small threads. Disconnected events.
 
 But Cassian's new awareness saw something others had missed: a pattern of asymmetric exchanges. Trades that looked generous on the surface but created undefined future obligations. Value given freely in the present, with costs deferred to an uncertain later.
 
-It reminded him of something. Something he couldn't quite place.
+Cassian set down his pen, unease prickling at the back of his neck. These weren't random acts of charity. These were calculated investments. Someone was making trades with the townsfolk, and the terms were deliberately obscure.
 
-These weren't random acts of charity. These were calculated investments. Someone was making trades with the townsfolk, and the terms were deliberately obscure.
+He needed to see one of these people directly. Talk to them. Use the medallion to understand what was really happening.
 
-But who? And why?
+---
 
-Cassian made notes in the margin of the dispute records. He'd look into it further when time permitted. For now, it was just a curiosity. A pattern that might mean something or might mean nothing.
+The baker's wife lived in Southgate district, not far from where widow Marta had her small room. Cassian found the house as evening was settling over Millhaven, the sky bruising purple with approaching night.
 
-He returned to his work, unaware that he'd just glimpsed the edge of something far larger and far more dangerous than he could imagine.
+He knocked, and the woman who answered made his blood run cold.
 
-Outside, the autumn wind picked up, scattering leaves across the market square. In the shadows between buildings, a cloaked figure watched the counting house window for a moment longer, then turned and disappeared into the night.
+It was her—he recognized her face from the market, where she'd always been quick with a smile and warm greetings. But something fundamental had changed.
 
-The warning had been given. Whether the boy would heed it or not remained to be seen.
+Her eyes were flat. Not sad, not tired—*flat*. Like someone had drained the light from behind them.
 
-But the Hollow was coming. 
+"Master Cassian." Her voice was perfectly polite, perfectly neutral. No warmth, no curiosity, just... empty courtesy.
 
-And time was running out.
+"I wanted to check on you," he said, trying to keep his voice steady. "I heard you'd consulted a healer a few years ago. I was wondering if—"
+
+"The healer was very helpful." The words were correct, but delivered without inflection. "She took away my pain. I'm much better now."
+
+Cassian focused on her, letting the medallion show him what lay beneath the surface.
+
+The vision that flooded his mind made him stumble backward.
+
+*Emptiness. Not darkness, not void, but absence. Where there should have been the shimmer of human value—fears, hopes, loves, regrets—there was just... nothing. A hollow space in the shape of a person.*
+
+*And at the edges, barely visible, threads of gold leading away. Connections that had been severed, value that had been extracted, like roots torn from soil.*
+
+"Are you well, Master Cassian?" she asked, and even her concern was hollow. The words of someone who remembered how to fake caring but no longer felt it.
+
+"I'm fine," he managed. "Thank you."
+
+He turned and walked away quickly, his heart hammering. Behind him, the door closed with a soft click.
+
+Three streets over, he stopped in an alley and leaned against the wall, breathing hard. The baker's wife. She'd been kind once, he was certain of it. He'd seen her in the market, heard her laugh with other merchants, watched her dote on her children.
+
+Now she was a shell. Something wearing a human face, going through the motions, but fundamentally *gone*.
+
+His father's letter echoed in his mind: *Refugees fleeing something that empties people from the inside. Towns where people traded away their suffering and became empty husks.*
+
+It was here. In Millhaven. Not coming—already *here*.
+
+And he'd been so focused on learning his new power, so consumed with small interventions and documenting his observations, that he'd missed the real danger spreading through his own town.
+
+Cassian pulled out his journal with shaking hands and began to write urgently in the dying light:
+
+*Pattern confirmed. The generous trades aren't charity—they're extractions. Someone is taking value from people, leaving them empty. The baker's wife consulted a "healer" who "took away her pain." But she took more than pain. She took everything that made her human.*
+
+*Question: Who is making these trades? The well-dressed stranger offering loans? The traveling healer? Are they the same person? Different agents working together?*
+
+*Question: Can this be reversed? If value has been taken, can it be restored?*
+
+*Question: How do I stop this without understanding the rules they're playing by?*
+
+He closed the journal, his mind racing. This was bigger than tax fraud, bigger than broken compasses and marketplace disputes. People were being *consumed* from the inside out, and he was possibly the only person in Millhaven who could see it happening.
+
+The medallion burned warm against his chest, as if responding to his determination.
+
+His father had believed this artifact could stop the Hollow—or at least understand it. Cassian didn't know if that was true. Didn't know if he was capable of facing something that could hollow out human souls.
+
+But he knew he had to try.
+
+Because if he didn't, Millhaven would become another empty town full of empty people, and everything he'd tried to protect—the widow Marta, old Breven, Helena and her daughter—would be lost to whatever darkness was making these impossible trades.
+
+The autumn wind picked up, carrying the scent of smoke and coming rain. Somewhere in the distance, more refugees would be arriving tonight, fleeing towns that had already fallen.
+
+Cassian tucked his journal into his coat and started walking back toward his rooms. He had work to do. Patterns to trace. A threat to understand.
+
+And somewhere in in the distance, someone was making bargains that sounded too good to be true.
+
+He needed to find them before they made ruins of Millhaven.

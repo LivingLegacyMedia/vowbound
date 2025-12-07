@@ -1,4 +1,4 @@
-# Chapter 1: Inheritance
+# Chapter 1: The Inheritance
 
 The ledger didn't lie.
 
