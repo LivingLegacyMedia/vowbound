@@ -3,23 +3,19 @@
                       THE LAW OF BALANCE
 ═══════════════════════════════════════════════════════════════
 
-CHAPTER STRUCTURE UPDATE (December 2025):
-Original outline had 12 chapters. Chapters 2 & 3 have been consolidated in 
-the actual manuscript into a single Chapter 2. This outline now reflects 
-11 total chapters with updated numbering throughout.
-
 QUICK CHAPTER REFERENCE:
 Chapter 1: The Inheritance
 Chapter 2: An Impossible Trade
 Chapter 3: The Rules of the Invisible Market
 Chapter 4: The Tyrant's Philosophy  
 Chapter 5: The Bargain Beneath the Earth
-Chapter 6: The Price of a Name
-Chapter 7: The Market of the Mind
-Chapter 8: The First Counter-Offer
-Chapter 9: Debt of the Dead
-Chapter 10: The Pact of Five Kings
-Chapter 11: The Tyrant's Offer [FINAL CHAPTER]
+Chapter 6: Arvenstead
+Chapter 7: The Hollow Trade
+Chapter 8: The Market of the Mind
+Chapter 9: The First Counter-Offer
+Chapter 10: Debt of the Dead
+Chapter 11: The Pact of Five Kings
+Chapter 12: The Tyrant's Offer [FINAL CHAPTER]
 
 ═══════════════════════════════════════════════════════════════
 
@@ -568,9 +564,9 @@ Key Moments:
 
 ═══════════════════════════════════════════════════════════════
 
-CHAPTER 6: "THE PRICE OF A NAME"
+CHAPTER 6: "ARVENSTEAD"
 
-Cassian uses his gift to trade his way into the King's court. In exchange for revealing a nobleman's secret (traded for a dying servant's final peace), he gains access to a war council. The secret he reveals: Lord Corvan has been in contact with Draven Kane himself, negotiating a private bargain to spare his family's lands in exchange for sabotaging the kingdom's defenses.
+Cassian arrives in Arvenstead, the capital, and immediately sees the Hollow's influence everywhere. The city is prosperous but haunted—Hollow preachers on street corners offering peace to the desperate, smiling converts testifying about their freedom from suffering. The atmosphere is deeply unsettling: people willingly trading away their humanity for relief from pain.
 
 During the confrontation, Corvan breaks down and describes his meeting with Draven: "He invited me to his tent under a flag of truce. I expected a warlord, a monster. Instead, I found a gentleman in fine clothes, reading poetry. He offered me wine. We talked about philosophy, about the nature of worth and power. He was... magnificent. Articulate. He made sense. He said, 'Why should you sacrifice your children for a king who wastes their lives? Trade me your loyalty, and I'll trade you their safety.' It seemed reasonable. It seemed fair. I didn't realize until afterward that I'd agreed to betray everyone I knew. And I couldn't remember why I'd ever cared about them."
 
@@ -1481,12 +1477,6 @@ Present: Supreme Voice of the Hollow; philosophical antagonist; possesses corrup
 End of Book I: Still at large; has marked Cassian; connection established through their coins
 Arc: Serves as dark mirror and future warning for Cassian—what happens when you refuse to pay
 Key Trait: Charismatic nihilist who believes power justifies any method
-
-LADY SERATH:
-Start: Skeptical military general who's lost family to Hollow
-Journey: Recognizes Cassian's gift → becomes ally → witnesses his transformation
-End: Loyal but frightened; loves what he was, fears what he's becoming
-Arc: From ally to concerned conscience
 
 MIRA:
 Background: Traveling merchant whose younger brother opened Draven's locket years ago, seeking power to save his failing business; brother is now hollow, barely alive, kept at the Ashen Citadel
