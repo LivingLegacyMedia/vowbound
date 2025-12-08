@@ -1,4 +1,4 @@
-# Chapter 7: The Hollow Trade
+# Chapter 7: The Traitor
 
 The war council met in a circular chamber. A round table dominated the room—a symbol of equality, though the man at its head clearly held more power than the others. King Aldric himself, gray-bearded and grim-faced, watched as Cassian was led inside.
 
@@ -150,21 +150,19 @@ King Aldric was quiet for a long moment. Then he turned to Cassian. "You said yo
 
 All eyes turned to Cassian. He felt the weight of the question. Felt the coin warm against his palm.
 
-He focused on Corvan, letting his perception open. Saw the shimmer of value around the man. Saw shame, thick and dark. Saw regret. But also—
+He focused on Corvan, letting his perception open. Saw the values of the man. Saw shame, thick and dark. Saw regret. And underneath—something that gave him pause.
 
-Something else. Something hollow.
+The impressions came in fragments: *Children. Love. Loss.* But the quality felt wrong. Distant and thin, like hearing music through a wall. Like echoes of emotions rather than the emotions themselves.
 
-Cassian frowned. He pushed his perception deeper, trying to understand what he was sensing. The impressions came in fragments, abstractions. *Children. Love. Loss.* But the quality was wrong. Distant and thin, like hearing music through a wall.
+Was it a hollowed soul? Or simply a great weight of trauma and guilt? Cassian couldn't tell for certain.
 
-Was it corruption? Or just the weight of trauma and guilt? He couldn't tell for certain, but something about those impressions was off-putting.
-
-"He's telling the truth," Cassian said carefully. "He made the trade. He regrets it. The guilt is genuine."
+"I do know that He's telling the truth," Cassian said carefully. "He made the trade. He regrets it. The guilt is genuine."
 
 Relief flickered across several faces. Even Corvan looked grateful.
 
-But something nagged at Cassian. Something about those impressions. The way they felt thin and distant, like they'd been diluted somehow.
+But the nagging doubt remained. Was he sensing Draven's manipulation, or was he simply inexperienced—seeing shadows where there were none? After what the Dealer had told him, he was primed to find corruption everywhere. Corvan's guilt looked real. His regret looked real.
 
-No. He was seeing corruption everywhere now, after what the Dealer had told him. Corvan's guilt was real. His regret was real. Cassian could see that clearly enough.
+Cassian pushed the doubt aside.
 
 "Execute him," the general said flatly. "Treason is treason, whether acted upon or not."
 
@@ -198,7 +196,7 @@ Corvan made a strangled sound.
 
 "Yes," Cassian agreed quietly. "It is. But it's also necessary. You lose nothing—he was going to be executed anyway. Instead, you gain an experienced commander who can't be turned, and critical intelligence about your enemy. Lord Corvan loses much that matters to him, but he is allowed to live. To serve. He can redeem himself through years of loyal service, knowing he once had children but unable to remember why he cared about them."
 
-He looked at Corvan. "It's a cruel mercy. But keeps much more than he would if executed."
+He looked at Corvan. "It's a cruel mercy. But you keep much more than you would if executed."
 
 Corvan's face had gone pale. "My children. You want me to forget my children?"
 
@@ -214,13 +212,15 @@ Herrick looked troubled. "Lord Corvan is—was—one of our finest military mind
 
 "And the intelligence?" the general asked. "How do we verify it?"
 
-"Can actually do this?" a nobleman challenged. "Remove memories? That's fantasy. You could be offering impossible terms just to delay his execution."
+"My coin grants insight into value," Cassian said. "Into truth and deception. I can sense when someone is lying—their words feel hollow, weightless. When they speak truth, especially painful truth, I feel the substance of it. Lord Corvan speaks everything he knows, and I verify it as best I can."
+
+"But how do we know you can actually do this?" a nobleman challenged. "Remove memories? That's fantasy. You could be offering impossible terms just to delay his execution."
 
 "A fair point," the King said, his eyes fixed on Cassian. "Can you prove this power of yours? Before we let a condemned traitor bargain with his life?"
 
 Cassian felt the weight of the room's skepticism. He'd only seen this done once—by the Dealer, who'd ripped his mother's face from his mind with terrible precision. He'd never attempted it himself. But the principle seemed sound: the coin facilitated willing trades, and memories had value.
 
-"I believe I can," Cassian said carefully. "But I've never attempted it before. I can attempt it...but it could damage his mind. Or fail completely. I don't know for sure..."
+"I believe I can," Cassian said carefully. "But I've never attempted it before. There's risk—it could damage his mind, or fail completely."
 
 The King held up a hand. "Lord Corvan. Do you accept the risk? That it may damage your mind in ways we cannot predict? And do you accept the trade—your memories of your children, for your life and chance to serve again?"
 
@@ -276,17 +276,21 @@ A long pause. Corvan's face showed confusion, then something worse—awareness w
 
 "I think it's best not to say." the King said.
 
-Corvan nodded slowly, processing this information the way one might process any neutral fact. "I see." No emotion. No recognition. Just... acceptance of facts. Then something flickered in his eyes—realization. "They're why I'm here, aren't they? The treason. I was trying to protect them."
+Corvan nodded slowly, processing this information the way one might process any neutral information. "I see." No emotion. No recognition. Just... acceptance of fact. He tested the words in his mouth. "I have children." Then something flickered in his eyes—understanding without feeling. "They're why I'm here, aren't they? The treason. I was trying to protect them."
 
 "Yes," Cassian said quietly.
 
-"But I don't..." Corvan's voice caught. Not with emotion, but with the recognition of its absence. "I don't feel anything. I know I should. I know they're mine. But they're just..." He looked at his hands. "What have I done?"
+"But I don't..." Corvan's voice caught. Not with emotion, but with the recognition of its absence. "I don't feel anything. I know I should. I know they're mine. But they're just..." He looked at his hands. "What did I do?"
 
 The room was deathly silent. Several council members looked shaken. Even the King seemed disturbed by what they'd witnessed.
 
-"Someone who can serve without being turned," the King said finally, though his voice lacked its earlier certainty. "Someone Draven can no longer exploit." He paused. "The trade is complete. You live, Lord Corvan. And now you'll tell us everything you know."
+"Someone who can serve without being turned," the King said finally, though his voice lacked its earlier certainty. "Someone Draven can no longer exploit."
 
-Corvan nodded slowly, mechanically. "Yes. I'll tell you everything." His voice was unfeeling. "I cannot withhold this from you, my King."
+The room remained silent for a long moment, everyone processing what they'd witnessed. Several nobles looked ill. Even the general seemed shaken.
+
+Finally, the King cleared his throat. "It is complete. You live, Lord Corvan. And now you'll tell us everything you know."
+
+Corvan nodded slowly, mechanically. "Yes. I'll tell you everything." His voice was unfeeling. "I have no reason to withhold from you, my King."
 
 And so he spoke.
 
@@ -402,7 +406,7 @@ Mira was quiet for a moment, processing. Then: "What if we went? Tomorrow. Befor
 
 "Maybe what?" Cassian asked gently. "He won't remember you. Won't feel anything about seeing you."
 
-"I know. But at least I'd know he's alive. That there's still something to save." She turned to him, intense. "And you need to see them too, don't you? The newly converted. If you're going to figure out how to reverse what's been done, you need to study them up close."
+"I know. But at least I'd know he's alive. That there's still something to save." She turned to him, intense. "And you need to see them too, don't you? The newly converted. If you're going to figure out how to reverse what's been done to them, you need to study them up close."
 
 She was right. The council chamber and secondhand reports weren't enough. If he was going to truly understand the Hollow—understand what he was fighting, what he might be becoming—he needed to see it firsthand.
 
@@ -467,4 +471,3 @@ Moving. Getting closer with each pulse.
 It wasn't just the Hollow attacking the city.
 
 Draven was here.
-
