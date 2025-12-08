@@ -106,7 +106,7 @@ The tension in the room was suffocating.
 
 "I'll help you," Cassian said to Elara. "There has to be another way. Give me until tomorrow. Don't sign anything yet."
 
-"Tomorrow?" Elara laughed bitterly. "What changes tomorrow?"
+"Tomorrow?" Elara laughed bitterly. "The first payment is due tomorrow at sundown. Master Torven starts seizing assets the day after. What changes in one day?"
 
 "Let me try."
 
@@ -174,7 +174,7 @@ He closed the ledger and met Cassian's gaze.
 
 "What you've stolen."
 
-"What you've *traded* for." Valen stood, and suddenly his pleasant demeanor cracked just slightly. Beneath it, Cassian saw something cold and vast. "You're young. Inexperienced. You think you can save everyone with good intentions and moral outrage. But you're a child playing in an arena you don't comprehend. Our master has been perfecting this art for decades. He knows secrets you couldn't imagine. Techniques that would shatter your mind if you tried to grasp them."
+"What you've *traded* for." Valen stood, and suddenly his pleasant demeanor cracked just slightly. Beneath it, Cassian saw something cold and vast. "You're young. Inexperienced. You think you can save everyone with good intentions and moral outrage. But you're a child playing in an arena you don't comprehend. Our master has spent decades studying human nature—what people truly want, what they'll give up, how to make surrender look like salvation. He understands the mechanics of human desires better than anyone alive."
 
 He stepped around the desk, moving closer.
 
@@ -228,15 +228,15 @@ Cassian spent the night searching his father's journals for anything—any scrap
 
 One entry, dated twenty years ago, was barely legible:
 
-*Confronted him today. Thought I understood the power. Thought I could turn it against him. I was wrong. So wrong. He showed me what he's built—a system where evil is the only logical choice. Where suffering is so great that people BEG to be emptied. And the Law allows it. The Law REQUIRES it, because the trades are fair.*
+*Confronted him today. Thought I understood. Thought I could turn it against him. I was wrong. He showed me what he's built—a system where evil is the only logical choice. Where suffering is so great that people BEG to be emptied. And it all appears fair. Legitimate. Because the trades are voluntary.*
 
-*I can't fight him. Can't stop him. All I can do is hide the fragment and hope someone stronger finds it. Someone who can see what I couldn't. Do what I couldn't.*
+*I can't fight him. Can't stop him. All I can do is hide it and hope someone stronger finds it.*
 
-*Emma keeps asking why I'm not sleeping. What can I tell her? That I've seen the future? That the world is going to hollow itself out one desperate trade at a time, and there's nothing I can do to stop it?*
+*Emma keeps asking why I'm not sleeping. What can I tell her? That the world is going to destroy itself one desperate trade at a time, and there's nothing I can do to stop it?*
 
 The entry ended there.
 
-Cassian sat back, cold spreading through his chest. His father hadn't hidden the coin to protect it. He'd hidden it because he'd given up. Because he'd faced Draven Kane and realized he couldn't win.
+His father had given up. Faced Draven Kane and realized he couldn't win.
 
 A knock at the door startled him from his thoughts.
 
@@ -266,71 +266,37 @@ Cassian stared at her. "You're considering it."
 
 She left before Cassian could respond.
 
-He sat alone in the counting house, the smell of fresh bread mocking him, and realized the horrible truth: Marta wasn't wrong. From her perspective, from Elara's perspective, from the perspective of anyone drowning in debt and fear and impossible choices, the Hollow looked like salvation.
+He sat alone in the counting house, the smell of fresh bread mocking him. From her perspective, from Elara's, from anyone drowning in debt and fear, the Hollow looked like salvation.
 
-That was the genius of it. Draven Kane had built a system that exploited the failures of kingdoms and kings. Every tax that was too high, every debt that crushed, every war that took sons from mothers—all of it fed the Hollow's growth. They didn't have to conquer. They just had to wait for people to become desperate enough to choose oblivion.
+Draven Kane had built a system that exploited every failure of the kingdom. Every tax too high, every debt that crushed, every war that took sons. They didn't conquer. They let corruption and desperation do their dirty work.
 
-Cassian pulled out the coin and stared at it.
+Cassian pulled out the coin. Something meant to help him understand value. But people's lives had been so devalued that selling their souls looked like a fair trade.
 
-The artifact that was supposed to help him understand value. That was supposed to give him power over exchange. But what good was understanding value when people's lives had been systematically devalued until selling their souls looked like a fair trade?
-
-He had to do something. Had to try.
-
-Even if his father had failed. Even if the attempt destroyed him the way it had destroyed Rowan.
-
-Because the alternative was watching everyone he'd tried to help sign contracts that would erase them.
+He had to try something. Even if failure destroyed him like it had destroyed his father.
 
 ---
 
-He found Marcus in the refugee camp, sitting by a small fire, staring into the flames.
+He found Marcus in the refugee camp, sitting by a small fire.
 
 "I need to know how to fight them," Cassian said without preamble.
 
 Marcus didn't look up. "You can't."
 
-"My father tried. Twenty years ago. He failed, but he tried. There must be something—"
+"My father tried fighting. There must be something—"
 
-"Your father was a fool." Marcus's voice was flat. "I knew him, you know. Before he went to confront the Hollow. He came through my city, asking questions, gathering information. He was convinced he could stop them. Said he'd found something—some kind of leverage. Wouldn't tell me what." Finally, Marcus looked up. "He came back three months later. Broken. Wouldn't speak of what happened. Just kept muttering about 'fairness' and 'balance' over and over, like they'd driven him mad."
-
-"What does that mean?"
-
-"It means the Hollow's system looks legitimate. By every principle of fair exchange they claim to follow, what they do appears lawful. Monstrous, but lawful. You can't fight them. You'll lose."
-
-"Then how—"
-
-"You run." Marcus stood, his expression hard. "You take everyone you care about and you run. That's the only way to survive. The Hollow keeps spreading, but there's still land beyond their reach. For now. Get there. Build something new. Don't waste your life trying to save people who've already given up."
+"Your father was a fool." Marcus's voice was flat. "I met him. Before he went to confront the Hollow. He came through my city, gathering information. Said he'd found leverage. Wouldn't tell me what." Finally, Marcus looked up. "He came back three months later. Broken. Just kept muttering about 'fairness' and 'balance' like they'd driven him mad with philosophy. By every principle of fair exchange, what they do appears lawful. Monstrous, but lawful." Marcus stood. "You want my advice? Run. Take everyone you care about and go. The Hollow's spreading, but there's still land beyond their reach. Don't waste your life on a fight your father already lost."
 
 "I can't abandon them."
 
-"Then you'll die with them. Or worse." Marcus turned away, back to his fire. "Your father tried to fight them head-on. Confronted their leader directly. It broke him. Sometimes the only way to survive is to live to fight another day, even if that means abandoning the current battle."
+"Then you'll die with them." Marcus turned away. "Your father tried to fight them head-on. It broke him. Sometimes survival means leaving the current battle to fight another day."
 
 Cassian left the camp feeling more hopeless than before.
 
-He walked through the town, watching people go about their daily business with forced normality. But he could see the fear beneath the surface. Could see the way eyes drifted toward the trade post in the square. The way conversations stopped when he passed. The way desperate people were weighing options in their minds.
+He walked through the town as twilight deepened, watching people go about their evening routines with forced normality. But he could see the fear beneath the surface. Eyes drifting toward the trade post. Conversations stopping when he passed. Desperate people weighing impossible choices.
 
 How many would sign by tomorrow? How many would choose emptiness over struggle?
 
-How many could he save?
-
-The sun was setting when he saw the child.
-
-A small boy, maybe six years old, playing alone near the trade post. He was building something with sticks and stones, humming tunelessly to himself. Too young to understand what the platform meant. Too young to know his world was ending.
-
-As Cassian watched, the boy's mother emerged from a nearby shop. She saw her son near the post and went rigid. Called his name—sharp, afraid. The boy looked up, confused by her tone, and ran to her. She grabbed him, held him tight, and hurried away.
-
-But not before Cassian saw her glance back at the trade post.
-
-Saw the terrible calculation in her eyes.
-
-Saw a mother weighing her child's life against her soul and wondering which was worth more.
-
-That was when Cassian knew.
-
-He couldn't save everyone. Couldn't prevent every signature. Couldn't stop the Hollow from taking what desperate people offered them.
-
-But maybe he could save one person. One woman drowning in debt with three children depending on her.
-
-Maybe that would be enough.
+He couldn't save everyone. But maybe—maybe—he could save one person.
 
 ---
 
@@ -386,79 +352,95 @@ The merchant studied him for a long moment. Then, surprisingly, he smiled. It wa
 
 "You're as foolish as your father," Varon said. "Chasing impossible solutions to impossible problems. I suppose that's admirable, in its way." He opened his shop door. "Come in. Let's draft the debt forgiveness before I change my mind."
 
----
+Inside, Varon's shop smelled of beeswax and old parchment. The merchant lit several lamps, pulled out paper and ink, and began drafting the document. Cassian watched his careful script, hope kindling in his chest for the first time in days.
 
-Day three of three.
+Maybe he could save her. Maybe one victory would be enough.
 
-Cassian woke to screaming.
+"There," Varon said finally, signing with a flourish. "Sixty crowns of debt forgiven, effective immediately. Take it to her in the morning. She'll still owe the other thirty, but at least—"
 
-He threw on his coat and ran into the square. A crowd had gathered near the trade post, and the sound was coming from the center of it—a woman's voice, raw and broken, keening like an animal in pain.
+Footsteps pounded outside. Shouting. A woman's scream—raw and broken.
 
-He pushed through the crowd and stopped cold.
+Cassian and Varon both rushed to the door.
 
-Elara knelt on the cobblestones, clutching her eldest daughter. The girl was perhaps eight years old. And she was empty.
+The market square was lit by torches. A crowd had gathered near the trade post, and the sound was coming from the center—a woman keening like an animal in pain.
 
-The child's eyes were open but unfocused. Her breathing was steady. But when Elara shook her, called her name, pleaded with her to respond—nothing. The girl simply stared at nothing, face slack, presence gone.
+No. No, it couldn't be—
 
-"What happened?" Cassian demanded.
-
-A merchant standing nearby answered, voice shaking. "The girl came to the trade post this morning. Early, before dawn. She had a contract—asked the emissary to sign it. She traded herself to clear her mother's debts."
-
-Cassian's blood turned to ice. "She's eight years old."
-
-"Old enough to sign her name," Valen's voice came from behind him. The emissary stood at the edge of the crowd, his expression professionally sympathetic. "Old enough to make a choice."
-
-"She's a child!" Cassian roared. "She doesn't understand what she signed!"
-
-"She understood perfectly." Valen gestured to the girl. "She knew her mother was suffering. Knew the family would lose everything. So she offered what she had: herself. Her essence in exchange for her family's security. We accepted the trade. Age doesn't determine value."
-
-Elara looked up at Valen with such hatred that the crowd stepped back. "You did this. You knew I wouldn't sign. So you took my daughter instead."
-
-"I took nothing." Valen's voice was calm, patient. "She came to me. She chose. And now your debts are cleared. Your family is secure. She gave you what you needed. You should be grateful."
-
-"Grateful?" Elara's voice broke. "You've killed her!"
-
-"I've freed her from a life of poverty and suffering." Valen knelt beside the girl, reached out to touch her shoulder gently. She didn't respond. "She'll never know hunger again. Never know fear or pain or loss. She's perfect now. Pure. Unburdened by the weight of her hard life."
-
-He stood, brushed off his knees.
-
-"Your town has until sundown to give your answer. Accept our terms, or face our armies. Those are your options." He looked directly at Cassian. "I hope you choose wisely. For everyone's sake."
-
-He walked away, leaving Elara sobbing over her daughter's empty shell.
+Cassian ran.
 
 ---
 
-The town meeting that afternoon was the ugliest thing Cassian had ever witnessed.
+He pushed through the crowd and his heart stopped.
 
-Half the town wanted to fight. The other half wanted to sign. And Elara... Elara stood in the center of the hall, holding her hollow daughter, and said nothing. Just stared at the assembled crowd with dead eyes.
+Elara knelt on the cobblestones, clutching her eldest daughter. The girl was perhaps eight years old—Cassian had seen her before, bringing her mother's bread deliveries to shops in the square. She'd always had a gap-toothed smile and flour in her hair.
 
-"We can't let this stand!" someone shouted. "That monster stole a child!"
+Now she was empty.
 
-"He didn't steal anything," Magistrate Torven said coldly. "The girl signed a legal contract. Under our laws—"
+The child's eyes were open but unfocused. Her breathing steady. But when Elara shook her, called her name, pleaded—nothing. The girl simply stared at nothing, face slack, presence gone.
 
-"Damn the laws!" The blacksmith stood, fists clenched. "Are we really going to hide behind legal technicalities while children are hollowed out in front of us?"
+"No," Cassian whispered. The debt forgiveness document crumpled in his fist. "No, I was going to—I was going to help—"
 
-"What would you have us do?" a merchant countered. "Fight? With what army? What weapons? They'll slaughter us!"
+A merchant nearby saw him and explained, voice shaking. "The girl came at dusk. Said her mother's first payment was due tomorrow and she needed to help. She had a contract. The emissary signed it. She traded herself."
+
+Cassian felt the world tilt. The girl had heard her mother say it—first payment tomorrow. Had heard Elara crying, heard the desperation in her voice. An eight-year-old trying to save her family the only way she knew how.
+
+He'd been so close. Minutes away from saving them. And now—
+
+"You," Elara's voice cut through his thoughts. She was looking up at him, her face a mask of grief and rage. "You said you'd help. You promised. And while you were negotiating with merchants, my daughter—" Her voice broke. "She heard me crying last night. Heard me say the debts were crushing us. She's eight years old and she thought she had to save me."
+
+"I have the debt forgiveness," Cassian said desperately, holding out the crumpled paper. "Varon agreed. Sixty crowns forgiven. You're—"
+
+"Too late." Elara's voice was dead. "Everything is too late."
+
+Valen's voice came from behind Cassian. The emissary stood at the edge of the crowd, his expression professionally sympathetic. "The child came of her own free will. Explained that her family needed relief from financial burdens. I merely facilitated the exchange she requested."
+
+"She's eight years old!" Cassian roared, spinning to face him. "She can't legally contract! She doesn't understand—"
+
+"She understood perfectly." Valen gestured to the girl calmly. "She knew her mother was suffering. Knew the family faced ruin. So she offered what she had: herself. Her essence in exchange for her family's security. We accepted the trade. Age doesn't determine value."
+
+"She's a child! She heard her mother's words and panicked—"
+
+"And acted with more courage than most adults." Valen's expression remained professionally sympathetic. "The debts are real. The suffering is real. I simply accepted the solution she offered." He brushed imaginary dust from his sleeve. "Your town has until sundown tomorrow to give your answer. Accept our terms, or face our armies."
+
+He looked directly at Cassian, and for just a moment, his pleasant mask slipped. Beneath it was something cold and vast and utterly without mercy.
+
+"You tried to save one woman, ledger-keeper. And failed. How do you think you'll fare trying to save an entire town?"
+
+He walked away, leaving Elara sobbing over her daughter's empty shell, and Cassian standing with a useless piece of paper in his hand.
+
+---
+
+The town meeting that afternoon felt like attending a funeral where the corpse was still breathing.
+
+Cassian stood near the back of the packed hall, pressed between bodies that radiated heat and fear-sweat. The air was thick and close, heavy with the smell of unwashed wool and desperation. Someone had opened the high windows, but no breeze came through—the afternoon was still and oppressive, as if the world itself was holding its breath.
+
+Elara stood in the center of the hall, holding her hollow daughter by the hand. The girl stood placidly, staring at nothing. And Elara said nothing. Just looked at the assembled crowd with dead eyes that said everything.
+
+*This is what hesitation costs. This is what happens when you wait for someone else to save you.*
+
+Half the town wanted to fight. Voices rose in anger, fists pounded tables. "We can't let this stand!" the blacksmith roared, his face red. "That monster stole a child!"
+
+"He didn't steal anything," Magistrate Torven said from his seat at the front, his voice carrying the cold weight of authority. "The girl signed a legal contract. Under our laws—"
+
+"Damn the laws!" The blacksmith shot to his feet. "Are we really going to hide behind legal technicalities while children are hollowed out in front of us?"
+
+"What would you have us do?" a merchant countered, his voice shrill with fear. "Fight? With what army? What weapons? We'll be slaughtered!"
 
 "Better dead than hollow!"
 
-"Easy for you to say—you don't have three children depending on you!"
+"Easy for you to say—you don't have children depending on you!"
 
-The shouting escalated. People were turning on each other, accusations flying, fear and anger mixing into something combustible.
+The shouting escalated. Accusations flew. Families who'd been neighbors for generations turned on each other. Cassian watched a lifetime of community trust shatter like glass dropped on stone.
 
-And through it all, Cassian stood frozen.
+This was what the Hollow did. Not conquest by force, but by division. By making people so afraid and desperate that they tore each other apart before the enemy ever drew a sword.
 
-He'd tried to save Elara. Had gotten Varon to forgive the debts. Had been so close to finding a solution.
+And through it all, Cassian stood silent, the crumpled debt forgiveness still in his pocket.
 
-But he'd been too slow. Too ineffective. And now a child had paid the price for his failure.
+Minutes too late. Minutes.
 
-He looked down at the coin in his palm. The artifact that was supposed to give him power. That was supposed to help him understand value and exchange. But what good was it? What good was any of it?
+The thought came unbidden: maybe Valen was right. Maybe the only choice left was to stop fighting. Sign the contract. Stop feeling.
 
-His father had tried to fight the Hollow and failed. Marcus had tried to resist and watched his city fall. And now Cassian was repeating the same pattern—trying to save people who couldn't be saved, fighting an enemy he didn't know how to defeat.
-
-Maybe Valen was right. Maybe the only logical choice was to accept the inevitable. To sign the contract, stop feeling the pain, and let the world hollow itself out in peace.
-
-The thought was seductive. Terrifying in how seductive it was.
+The appeal of that thought terrified him more than anything else.
 
 "Cassian."
 
@@ -514,15 +496,17 @@ As night fell, Cassian made his decision.
 
 He would go with Seris. Would see this place beneath the town. Would learn what his father had learned—or failed to learn.
 
-Because the alternative was standing here paralyzed, watching his town die by degrees while he did nothing.
+Because the alternative was standing here paralyzed, watching his town die by degrees.
 
-He touched the coin in his pocket, feeling its familiar weight. Whatever price this mysterious person demanded, he'd find a way to pay it.
+He touched the coin in his pocket. Whatever price this mysterious person demanded, he'd find a way to pay it.
 
 Though Seris's warning echoed in his mind: *Nothing you could carry would be sufficient.*
 
-What did that mean? What could be taken from him that he couldn't carry?
+What could be taken from him that he couldn't carry? The question haunted him as midnight approached.
 
-The question haunted him as he waited for midnight.
+The thought made his stomach turn. Was this person—this Dealer—the same as the Hollow? Would he have to become hollow himself just to learn how to fight them?
+
+If the price was acceptable, he'd pay it. If it was too terrible to pay... he would have decide when he got there.
 
 ---
 
