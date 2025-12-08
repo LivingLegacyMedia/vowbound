@@ -368,17 +368,19 @@ Seris pulled a folded paper from her pocket. "This arrived yesterday. A messenge
 
 Cassian took the paper, read it through. The King's seal at the bottom—official, urgent. A summons to present himself within the fortnight.
 
-His stomach dropped as he read further. "This says the Hollow army was spotted three weeks north of the capital. They're moving south, toward the seat of power." He looked up at Seris. "Draven is leading them there."
+His stomach dropped as he read further. "This says the Hollow army was spotted in the eastern provinces, advancing toward the capital along the old trade road." He looked up at Seris. "Draven is leading them there. They'll reach the capital in weeks, maybe less."
 
 "Yes. The capital is the prize. Take the King, take the kingdom." Seris's expression was grim. "That's why the King is desperate for information."
 
-"If I go to the capital, Draven could sense me," Cassian said quietly. "The Dealer said the fragments know each other. If Draven is that close, and I bring my coin there..." He didn't finish the thought.
+Cassian studied the summons again, his mind racing through the geography. Millhaven sat on the southern edge of the kingdom, far from the main roads. The Hollow's army was sweeping in from the east, where they'd been consolidating their hold on the conquered provinces. They'd bypass smaller towns like Millhaven—for now—while they focused on the real prize.
 
-"He'll know there's another fragment-bearer nearby," Seris finished. "Yes. But if he's marching on the capital, there's a reason. Probably he is targeting the same fragment your father tried to reach. If Draven gets it before you do..."
+"If I go to the capital, Draven could sense me," Cassian said quietly. "The Dealer said the fragments know each other. If I'm there when his army arrives, and I bring my coin..." He didn't finish the thought.
+
+"He'll know there's another fragment-bearer nearby," Seris finished. "Yes. But if he's marching on the capital, there's a reason. He's targeting the same fragment your father tried to reach. If Draven gets it before you do..."
 
 She didn't need to finish. Two fragments in Draven's hands would make him even more unstoppable.
 
-"Better to face him in the capital, surrounded by the King's guard and armies, than alone on a road somewhere," Seris continued. "Or worse—here, where everyone you're trying to protect could become collateral when he comes hunting."
+"Better to face him in the capital, surrounded by the King's guard and armies, than to wait here for his forces to sweep through," Seris continued. "Because they will come here eventually. Every town will fall, one way or another. At least in the capital, you have a chance to find the fragment first."
 
 She was right. He knew she was right. But the thought of deliberately putting himself in Draven's path—in a city already under siege—made his stomach clench with fear.
 
@@ -394,15 +396,27 @@ But his father had been alone. Working in secret. Hiding from the Guild.
 
 Maybe Cassian didn't have to follow that exact path. Maybe he could find allies. Maybe, just maybe, he could do what his father couldn't.
 
-"I'll go," he said. "I'll answer the summons. But I need to be ready first. I need to understand this better." He gestured at the journals. "Give me one more day. Then I'll pack."
+"I'll go," he said. "I'll answer the summons. But I need to be ready first. I need to understand this better." He gestured at the journals. "I need time to prepare."
 
-Seris nodded. "One more day. Then you leave for the capital, and everything changes."
+"Time is something you don't have much of." Seris glanced toward the window, where dawn was breaking. "The Hollow's deadline is today. By sundown, the town will have given their answer—or the Hollow will decide for them."
+
+Cassian's stomach tightened. In the days since he'd descended into the catacombs and paid the Dealer's price, the town's situation had only grown more desperate. He'd seen the frightened looks, heard the whispered debates about whether survival was worth the cost of one's soul.
+
+"What will they choose?" he asked quietly.
+
+"Does it matter? If they accept, they become the Hollow's servants. If they refuse, they become the Hollow's victims." Seris's expression was grim. "Either way, you can't help them. Not here. Not now. Your fight is in the capital—finding the other fragments before Draven does."
+
+She was right. He knew she was right. But leaving felt like abandonment.
+
+"The magistrate will do what magistrates always do," Seris continued. "He'll make the practical choice. The safe choice. And the town will survive, in a fashion." She met his gaze. "But you? You leave today. Before the Hollow tightens its grip. Before someone notices you have what Draven would kill for."
+
+Cassian nodded slowly. Today. He had to leave today.
 
 She left him alone with his father's life's work and the weight of impossible choices.
 
 ---
 
-On the third morning, Cassian packed his few belongings into a travel sack. The journals went in first, wrapped in oiled cloth to protect them from rain. Then the maps, carefully folded. A change of clothes. Some bread and cheese Seris had prepared.
+By mid-morning, Cassian had packed his few belongings into a travel sack. The journals went in first, wrapped in oiled cloth to protect them from rain. Then the maps, carefully folded. A change of clothes. Some bread and cheese Seris had prepared.
 
 And the coin, always in his pocket. Always heavy. Always there.
 
@@ -432,11 +446,21 @@ Cassian took the reins, led the horse outside into the morning sun. "What if I c
 
 "The one between hiding and acting. Between protecting yourself and protecting everyone else." She stepped back. "Your father chose to hide. To keep the fragment safe by keeping it secret. Maybe that was the right choice at the time. But it's not an option anymore. You have to act now, or watch everything fall."
 
-Cassian mounted the horse, settling into the worn saddle. From this height, he could see over the town walls to the fields beyond. Peaceful. Quiet. Unaware of the storm coming from the north.
+Cassian mounted the horse, settling into the worn saddle. From this height, he could see over the town walls to the square beyond. Even from here, he could see people gathering near the trade post. The Hollow's deadline was hours away. By sunset, Millhaven would make its choice—or have it made for them.
 
-"Take care of them," he said. "While I'm gone. The refugees, the town. If the Hollow comes before I return—"
+He wanted to stay. To stand with them. To fight somehow.
 
-"I'll do what I can," Seris promised. "But you're our best hope. Remember that when things get hard. Remember what you're fighting for."
+But Seris was right. His fight wasn't here. Not anymore.
+
+"What will happen to them?" he asked quietly.
+
+"They'll survive," Seris said. "One way or another. The Hollow doesn't destroy towns—it absorbs them. Your people will live. They'll just..." She paused, searching for words. "They'll just stop fighting. Stop being what they were..."
+
+"That's not survival."
+
+"No," Seris agreed. "But the alternative is worse, or seems worse in the moment." She touched his stirrup briefly. "You can't save them by staying. You can only fail alongside them. Your path leads south now."
+
+She was right. But it still felt like cowardice.
 
 Cassian nodded. Then he urged the horse forward, through the gate, onto the road that led south to the capital.
 
