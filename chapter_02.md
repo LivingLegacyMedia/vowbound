@@ -1,4 +1,4 @@
-# Chapter 2: An Impossible Trade
+# Chapter 2: The Impossible Trade
 
 Cassian couldn't focus.
 
