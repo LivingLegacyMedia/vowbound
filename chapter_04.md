@@ -520,7 +520,7 @@ Seris emerged from the shadows by the entrance. "You came."
 
 "Did you think I wouldn't?"
 
-"I thought you might choose ignorance. It's often easier." She gestured toward the chapel. "Last chance to turn back. Once we go down, there's no leaving without paying the price. The old powers don't release their knowledge for free."
+"I thought you might choose ignorance. It's often easier." She gestured toward the chapel. "Last chance to turn back. Once we go down, there's no leaving without paying a price. The old powers don't release their knowledge for free."
 
 "I understand."
 

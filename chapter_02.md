@@ -56,7 +56,7 @@ The interior was dimly lit, crowded with shelves displaying an eclectic array of
 
 Behind the counter stood Merchant Varon himself.
 
-He was older than Cassian had expected. Seventy, perhaps, though he carried himself with rigid dignity. His clothes were expensive but practical, his hair white and precisely trimmed, his hands steady as he examined a pocket watch through a jeweler's loupe.
+He was older than Cassian had expected. Seventy, perhaps, though he carried himself with a straight posture. His clothes were expensive but practical, his hair white and precisely trimmed, his hands steady as he examined a pocket watch through a jeweler's loupe.
 
 "Master Cassian," Varon said without looking up. "The ledger-keeper who corrected the magistrate's arithmetic. You've been standing outside my shop for seven minutes. If you're gathering courage, you're wasting both our time. If you're planning theft, I should warn you my locks are excellent."
 
@@ -130,7 +130,7 @@ Because his pride wouldn't allow it, Cassian thought to himself. Because going t
 
 "This seed came from her original strain," Cassian said quietly. "Meredith's mother and my great-grandmother were friends in the Old Provinces. When they both moved here to start new lives, they shared cuttings and seeds—including the Wild Thornheart. My family's been growing it for four generations from that original stock. It's the same variety Meredith grew. The same flowers she wore when—" He stopped, not needing to finish.
 
-Varon's jaw worked silently.
+Varon opened his mouth as if to speak, then closed it again. His throat moved as he swallowed hard.
 
 "This seed," Cassian said carefully, "has grown in my family's garden for four generations. The same flowers Meredith grew. The ones she wore in her hair." He paused. "She died two years ago. Her children sold the bakery and moved to Corwell. The garden was torn up for new construction. As far as I know, this is one of the last seeds of her original strain left in Millhaven."
 
@@ -172,7 +172,7 @@ The compass represented Cassian's livelihood, his ability to do his job. The see
 
 Cassian's pulse quickened. It had worked. He'd read the abstract impressions correctly, interpreted what Varon truly valued beneath all his defenses. This wasn't just the medallion showing him truth—this was *his* ability to understand it, to translate cryptic visions into human meaning.
 
-Varon carefully placed the seed in a small wooden box lined with soft cloth, handling it with a gentleness that seemed at odds with his reputation. For a long moment, he just stared at it, his jaw working as if he were fighting back words he'd kept locked away for decades.
+Varon carefully placed the seed in a small wooden box lined with soft cloth, handling it with a gentleness that seemed at odds with his reputation. For a long moment, he just stared at it, his hands trembling slightly. When he finally spoke, his voice was tight with suppressed emotion, words forcing their way past years of pride and regret.
 
 "Your father understood something most people never do," he said finally, his voice carefully controlled again. "That value exists beyond what we can count or own. That some trades cost us everything even when we think we're winning." He looked up at Cassian. "I've spent seventy-three years getting the better end of every negotiation. But I lost the only deal that mattered."
 

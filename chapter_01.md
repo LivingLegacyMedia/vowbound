@@ -1,26 +1,36 @@
 # Chapter 1: The Inheritance
 
-The ledger didn't lie.
+Cassian should have been preparing for his father's funeral.
 
-Cassian ran his finger down the column of numbers a third time, though he already knew what he'd find. The tax assessment for Southgate district—where widow Marta struggled to feed her children, where old Breven the cooper was one bad season from losing his shop—was precisely seventeen percent higher than the charter allowed. Meanwhile, Magistrate Torven's own holdings in the merchant quarter were recorded at half their actual value.
+Instead, he sat in the counting house, staring at a column of numbers that refused to make sense.
 
-The discrepancy wasn't subtle. It was brazen.
+He ran his finger down the page again, checking his work. The afternoon sun slanted through the window, painting long shadows across his desk. In three hours, they would lower his father into the ground. He should be home. Washing, dressing, pretending he had the money to feed mourners who wouldn't come.
 
-Cassian sat back in his chair, the wood creaking in the silence of the counting house. Through the window, he could see the afternoon sun slanting across the market square, painting long shadows across the cobblestones. In a few hours, he would bury his father. He should be home, preparing. Washing, dressing, pretending he had the money to feed mourners who wouldn't come.
+But the numbers refused to add up.
 
-Instead, he was staring at numbers that would make him enemies.
+It was a distraction. Or maybe an excuse...
 
-His hand moved toward his pen, then stopped. The ledger lay open before him, damning in its precision. He could close it. File it away. Pretend he'd never seen the discrepancy. Torven had been magistrate for fifteen years—clearly no one else had noticed, or if they had, they'd known better than to cross him.
+He could see that the tax assessment for Southgate district was wrong. Not just a little wrong...seventeen percent too high. He'd checked it three times now, comparing it against the town charter rates. The charter was clear. Two hundred years old and gathering dust in the records room, but clear.
 
-Cassian's father had spent his life chasing rumors no one cared about. It had cost him his fortune, his reputation, his sanity. And what had it earned him? A pauper's funeral and a son who resented him for it.
+Someone had been overcharging the poorest district in Millhaven.
 
-*Don't be like him,* Cassian thought. *Don't throw your life away for numbers in a book.*
+Cassian sat back in his chair. The wood creaked in the silence. His eyes burned from hours of reviewing ledgers, but his mind was sharp with a clarity that felt almost dangerous.
 
-But then he thought of Marta's face when she'd come to pay her tax last month. The careful way she'd counted out the coins, her fingers trembling slightly with exhaustion or cold or fear—he hadn't been able to tell which. How she'd apologized for asking if the amount was correct, as if questioning the town's assessment was a sin worthy of penance.
+The discrepancy wasn't an accident. It was too consistent, too precise.
 
-She'd been right to question it. She'd been overcharged by more than two silver crowns. Enough to feed her children for a week.
+He could close the ledger. File it away. Pretend he'd never noticed. The Magistrate had been in power for fifteen years—clearly no one else had caught this, or if they had, they'd known better than to cross him.
 
-The law was clear. The town charter, written two hundred years ago when Millhaven was founded, specified tax rates down to the copper. Cassian's job as ledger-keeper was to maintain accuracy, to ensure the numbers reflected reality. Not the story Torven preferred, but the truth.
+His hand moved toward his pen, then stopped.
+
+Cassian's father had spent his life chasing things that didn't matter. Ancient ruins, old coins, legends no one believed. It had cost him everything. His fortune, his reputation, his sanity. And what had it earned him? A pauper's funeral and a son who resented him for it.
+
+*Don't be like him,* Cassian thought. *Don't throw your life away.*
+
+But then he remembered last month. A woman from Southgate had come to pay her taxes. Widow Marta, someone had called her. She'd counted out the coins carefully, her fingers trembling. When she'd asked if the amount was correct, she'd apologized for questioning it. As if asking was a sin.
+
+According to these numbers, she'd been overcharged by more than two silver crowns. Enough to feed a family for a week.
+
+The law was clear. The town charter specified tax rates down to the copper. Cassian's job as ledger-keeper was to maintain accuracy. To report what was true. Not to report what was convenient for powerful men.
 
 His father's voice echoed in memory: *Some things are worth pursuing even if the world calls you a fool for it.*
 

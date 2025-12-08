@@ -328,9 +328,9 @@ When they were gone, the square erupted in chaos. Some wanted to fight. Others w
 
 "Maybe the offer isn't so bad. I mean, if we just acknowledge their authority—"
 
-"You want to end up like those refugees? Like those guards? Walking corpses?"
+"You want to end up like those refugees? Like those guards? Empty husks?"
 
-"Better a walking corpse than a dead one!"
+"Better alive and empty than slaughtered in our beds!"
 
 Cassian stood silent, watching it all. Watching the fear do exactly what the Hollow wanted it to do—divide the town, fracture their unity, make them desperate enough to consider the unthinkable.
 
