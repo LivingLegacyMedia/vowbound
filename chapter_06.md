@@ -4,9 +4,19 @@ The journey to the capital took five days through autumn rain and roads churned 
 
 *The fragments know each other,* the Dealer had said. *Find the others before he does.*
 
-By the third day, the coin grew feverish against his chest, pulsing with heat that had nothing to do with his body temperature. Something was near. Another fragment, perhaps. Or Draven himself.
-
 Every morning, Cassian woke reaching for his mother's face and found only emptiness. The loss was getting easier to bear—which somehow made it worse. He was learning to live with the absence, learning to function with a piece of himself carved out. That was the true weight of the Dealer's price: not the initial agony, but the slow normalization of grief.
+
+On the fourth day, he passed a refugee family camped beside the road—a father, mother, and three children huddled beneath a makeshift shelter of canvas and branches. The father watched Cassian ride past with the particular stillness of someone who'd already lost everything that mattered.
+
+Cassian wanted to stop. To offer something. But he had barely enough coins left for lodging in the capital, and the family needed more than he could give. He rode on, their hollow stares following him down the road.
+
+*What would you have traded to save them?* he found himself thinking. *What price would be fair?*
+
+He didn't like that the question came so easily now. Didn't like how naturally he'd begun thinking in terms of exchange—suffering weighed against salvation, mercy measured in cost. The Dealer's bargain had taught him to see value everywhere. But some things, he told himself, shouldn't require payment.
+
+By the time Millhaven was three days behind him, the guilt had settled in properly. Widow Marta. Master Grenn. All the people he'd corrected taxes for, thinking he was helping them. Had they signed the contracts by now? Had the Hollow offered them peace, and had they accepted it because there was no other choice?
+
+He'd left them. Chased his own purpose. And if they'd become hollow in his absence, that was another debt he owed—one he couldn't calculate in his ledgers.
 
 ---
 
@@ -20,47 +30,41 @@ Cassian led his horse through the gate and into a city transformed by fear.
 
 ---
 
-The markets were subdued, merchants selling their wares quietly. People moved with their heads down, hurrying. No one lingered. But on every corner, on every market square, someone was preaching.
+The markets were subdued, merchants selling their wares quietly. People moved with their heads down, hurrying. No one lingered. But in the central square, a small crowd gathered around a woman standing on a crate.
 
-Hollow converts.
+A hollow convert.
 
-They stood on boxes and crates, speaking in calm, measured voices about peace and freedom from suffering. Small crowds gathered to listen—drawn by curiosity or desperation, Cassian couldn't tell.
+She spoke in a calm, measured voice, but there was an unsettling brightness to her delivery—like someone reciting lines they'd memorized perfectly. "I once carried the weight of seven children I couldn't feed. Sleepless nights. Hungry cries. The guilt of every empty belly pressing down on me until I couldn't breathe." She smiled. "The Hollow took it all. Now I sleep soundly. Now I am free. You can be free too."
 
-"Trade your debts for deliverance," one of them said. A woman in her thirties, hollow-eyed but smiling. "I once carried the weight of seven children I couldn't feed. Sleepless nights. Hungry cries. The guilt of every empty belly. The Hollow took it all. Now I sleep soundly. Now I am free. You can be free too."
+A man in the crowd—gaunt, desperate—called out: "But what do you feel now? Anything?"
 
-A young man beside her nodded. "I lost my legs in the war. The pain was unbearable. Every morning, waking to agony. Every night, praying for death. The Hollow offered me a trade: my memories of walking, for freedom from suffering. I accepted. I am hollow, yes. But I am also finally at peace."
+"Peace," she said simply. "Isn't that what we all want?"
 
 People in the crowd murmured. Some looked horrified. Others looked tempted.
 
-Cassian watched, his chest tight. They weren't lying. They had traded their pain for emptiness, and to them, the bargain was fair. Looking at the woman's smile, the young man's calm—it *was* a kind of peace. A disturbing peace, but peace nonetheless.
+Cassian watched from the edge of the gathering, his chest tight. She wasn't lying. She had traded her pain for emptiness, and to her, the bargain was fair. Looking at her smile, her calm—it *was* a kind of peace. A disturbing peace, but peace nonetheless.
 
 An old merchant near Cassian shook his head. "Used to be you could tell who was hollow just by looking at them. Now they smile. They laugh. They almost seem normal."
 
-"Have many people accepted?" Cassian asked quietly.
+"How many have accepted?" Cassian asked quietly.
 
-"More every day. Whole families sometimes. The Hollow take your suffering, and these days, who doesn't have suffering to spare?" The merchant spat on the cobblestones. "Me, I'd rather hurt than be empty. But I'm old. Ask me again when the pain gets worse."
+"More every day. Whole families sometimes." The merchant spat on the cobblestones. "Me, I'd rather hurt than be empty. But I'm old. Ask me again after the pain worsens."
 
-Cassian moved on, but the preachers were everywhere. In the market square, a hollow woman spoke to a crowd of perhaps fifty people. In an alley, two hollow men helped an elderly couple who'd just accepted the trade, their eyes already beginning to empty. Outside a tavern, a young girl distributed contracts to those willing to listen.
+Cassian moved on. At the corner, he saw a young girl distributing contracts to passersby—formal documents offering to take suffering in exchange for service. Most people hurried past. A few stopped to read, their faces drawn with desperation.
 
-The contracts. Seeing them in person made Cassian's stomach turn. Formal documents, meticulously written, offering to take suffering in exchange for service. Sign one, and your pain ends. Sign one, and you become a vessel for someone else's debts.
+Sign it, and your pain ends. Sign it, and you become a vessel for someone else's debts.
 
-He thought of Millhaven. The refugees who'd arrived with hollow eyes. The magistrate who'd probably already signed the contracts by now. Everyone he'd known—widow Marta, the merchants, the neighbors—probably hollow now because he'd left them to save themselves the only way available.
-
-The guilt settled onto his shoulders like a physical weight.
-
-He found lodging at a tavern called the Broken Wheel, near the docks. Cheaper than the inns closer to the palace, and busy enough that no one would pay attention to another travel-worn stranger. He paid what little money he had left for a narrow room with a single window and a bed that smelled of must and old straw.
+He found lodging at a tavern called the Broken Wheel, near the docks—a common stop for those seeking audience with the King, where lodging was cheap and questions were scarce. He counted out his remaining coins carefully: just enough for three nights and meals, with nothing left over. The room was narrow, with a single window and a bed that smelled of must and old straw, but it would do.
 
 The palace would have to wait until morning. The King's summons said he should present himself "at the earliest convenience," but Cassian was exhausted, filthy, and the coin was burning against his chest like a brand. He needed to rest. To think. To prepare for whatever came next.
 
 He came back downstairs as evening fell, drawn by the smell of stew and the low murmur of conversation. The common room was half-full—merchants, travelers, a few city guards off duty. He found a corner table and ordered food.
 
-The stew was thin but hot. He ate mechanically, watching the room. Most people kept their heads down, speaking in low voices. No one wanted to draw attention. But at a table near the fire, a woman sat alone, writing in a ledger.
+The stew was thin but hot. He ate mechanically, watching the room. Most people kept their heads down, speaking in low voices. No one wanted to draw attention. But at a table near the fire, a woman sat alone, writing in a ledger with the focused intensity of someone fighting a losing battle.
 
-She was perhaps twenty, with dark hair pulled back in a practical braid. Travel-worn clothes—sturdy boots, a worn cloak, a pack at her feet. She had an apple and a cup of wine, and she worked with the focused intensity of someone trying to solve an impossible problem.
+She was perhaps twenty, with dark hair pulled back in a practical braid. Travel-worn clothes—sturdy boots, a worn cloak, a pack at her feet. She had an apple and a cup of wine, and every few minutes she'd stop, stare at something she'd written, then shake her head and cross it out.
 
-Every few minutes, she'd stop, stare at something in the ledger, then shake her head and cross something out.
-
-Cassian found himself watching her. There was something about her expression—frustration mixed with determination—that reminded him of himself. Of countless nights spent over his father's ledgers, trying to make impossible numbers add up to something that made sense.
+Cassian found himself watching her. There was something about her expression—frustration mixed with determination—that felt familiar. Like looking in a mirror that reflected struggles instead of faces.
 
 She looked up suddenly and caught him watching. He looked away quickly, but not quickly enough.
 
@@ -78,53 +82,61 @@ Cassian hesitated, then moved to her table. Up close, he could see dark circles 
 
 "Cassian. And I'd help if I could, but I can barely afford this room myself."
 
-"Not asking for help. Just commiserating." She closed the ledger with a sigh. "What brings you to the capital? Besides poverty."
+"Not asking for help. Just commiserating." She closed the ledger with a sigh, seeming to weigh whether to continue the conversation. After a moment, she spoke again. "What brings you to the capital? Besides poverty."
 
 "The King's summons. He's looking for advisors."
 
-Mira's eyebrows rose. "You answered the summons? Most people ignored it. Figured it was desperate propaganda." She studied him more carefully. "What makes you qualified to advise a king?"
+Mira's eyebrows rose. "You answered the summons? Most people ignored it. Figured it was desperate propaganda." She studied him more carefully. "What makes you qualified?"
 
 "I understand how the Hollow works. How they trade. What they're really offering people."
 
-Something shifted in her expression. Interest. And something else—hope? Fear?
+Something shifted in her expression. Interest. And something else—a flash of hope quickly suppressed. "You've studied them?"
 
-"You've studied them?" She leaned forward. "The Hollow. You know how their bargains work?"
+"I've seen the aftermath. I've spoken with refugees. I've—" He hesitated. "I've learned things about the mechanics of their bargains that most people don't know."
 
-"I've seen the aftermath. I've spoken with refugees. I've—" He hesitated. "I've learned things about the mechanics of exchange that most people don't know."
+She was quiet for a long moment, her fingers drumming on the closed ledger. Then: "Can they be undone? The bargains, I mean."
 
-"Can they be undone?" The question came out urgent. Too urgent. She caught herself, sat back. "Sorry. I just... I'm looking for someone. My brother. He was taken by the Hollow."
+The question was careful. Controlled. There was weight behind it.
 
-Cassian's chest tightened. "How long ago?"
+"I don't know," Cassian admitted. "Maybe. Why?"
 
-"Three weeks." Her voice was quiet now. Raw. "He was brilliant, my brother. Wanted to help people. But he failed. Alot, actually. His ideas didn't always work. When our mother died two months ago, he just... broke. Spent weeks staring at walls, crying. I tried everything. Nothing helped."
+She looked at him, seemed to make a decision. "My brother accepted their offer. Seven weeks ago."
 
-She took a shaky breath. "Then the Hollow came to our city. Draven Kane himself was there—leading the advance. He walked through the streets like he owned them, talking to people. And he saw Torin. Saw his grief. He offered him a trade personally: his grief, his guilt, his memories of watching her die—all of it gone. In exchange for his service. He gave Torin a golden locket. Told him exactly what it would do. 'Open this, and your suffering ends. You'll be free.'"
+Cassian's chest tightened. "Seven weeks. I'm sorry."
 
-"Draven gave it to him directly?" Cassian asked quietly, understanding the significance. The locket—the imprisoned coin. Not a contract like the emissaries usually distributed. Draven himself had chosen Torin for something.
+"His name is Torin." Her voice dropped, becoming rawer. "He was always trying to help people, coming up with plans to make things better. Most of them didn't work, but he never stopped trying. When our mother died nine weeks ago, he fell apart. Spent days staring at walls, not eating. I couldn't reach him."
 
-"Yes. I didn't understand why at the time. There were hundreds of desperate people, but Draven chose my brother." Her voice dropped. "Maybe he saw something in him. Some potential. I don't know."
+She took a shaky breath. "Then the Hollow came to our city. Draven Kane himself was there—leading the advance. He walked through the streets like he owned them, and he saw Torin. Saw his grief. He offered him a trade personally: all his suffering, all his guilt—gone. In exchange for service. He gave Torin a golden locket. Told him exactly what it would do."
 
-"He knew what would happen. He held that locket for three days. I begged him not to open it. But he said..." Her voice broke. "'I can't carry this anymore, Mira. I'm drowning. At least if I'm hollow, I won't feel this pain.' And he opened it." 
+"Draven gave it to him directly?" Cassian asked quietly, understanding the significance. Not a contract like the emissaries distributed. Draven had chosen him.
 
-She wiped her eyes with the back of her hand. "I watched the life drain out of his eyes. Everything that made him Torin just... gone. Replaced by calm, empty nothing. He hugged me goodbye like I was a stranger he vaguely recognized. Then they took him."
+"Yes. There were hundreds of suffering people, but Draven chose my brother." Her jaw tightened. "Torin held that locket for two days. I begged him not to open it. But he said he was drowning. That at least if he was hollow, he wouldn't hurt anymore." 
 
-Cassian didn't know what to say. He'd seen that same emptiness in the preachers on the streets. That same terrible peace.
+She met Cassian's eyes. "I watched everything that made him Torin drain away. The light in his eyes just... went out. Replaced by nothing. By calm, empty nothing. He thanked me for being a good sister. Then he left with them, walking northeast with a group of newly converted, and I haven't seen him since."
 
-"People say," Mira continued, gripping her cup, "that the newly hollow aren't fully gone yet. Not completely. That if you can reach them quickly enough, within the first month or two, there might be a way to bring them back. That's why I'm here. Why I'm searching. But I'm running out of time. And money. And hope."
+"I'm sorry," Cassian said quietly. The words felt inadequate.
 
-"Where do you think he is?"
+"Everyone's sorry." There was no bitterness in her voice, just exhaustion. "But sorry doesn't tell me where he is or how to get him back. I've been tracking their movements for seven weeks. Northeast, always northeast. Someone mentioned a fortress. Someone else said they saw hollow converts being trained for... something. But every lead goes cold. Every trail dead-ends."
 
-"I don't know. I've been tracking Hollow movements, interrogating refugees. Someone mentioned they saw newly converted being taken northeast. Another said there's a fortress where they keep them during..." She swallowed. "During the transition. But I don't have confirmation. Just rumors. And every day I waste chasing false leads is another day Torin slips further away."
+"What will you do when you find him?"
 
-Cassian looked at her—really looked at her. Saw the desperation. The determination. The exhaustion of someone who'd been fighting alone for too long.
+"I don't know." She looked down at her ledger, at the crossed-out notes and failed calculations. "I keep thinking—there has to be a way. They took something from him, which means that something still exists. Maybe it can be restored. Maybe..." She trailed off. "Maybe I'm chasing a fantasy because the alternative would break me."
 
-"Can you help him?" she asked. "With what you know?"
+Cassian looked at her—really looked at her. Saw the exhaustion that came from searching alone. The determination that hadn't yet broken. The fear that it might. He thought of his own father, chasing legends everyone else dismissed. The way people had looked at Rowan—with pity, with scorn. The way they'd looked at Cassian for not stopping him.
 
-"I don't know," Cassian admitted. "I'm still learning. Still figuring out how it all works. But if there's a way..." He thought about the coin in his pocket. About the Dealer's words. About everything he'd sacrificed to get here. "If there's a way to undo what they've done, I'll find it."
+"It's not a fantasy," he said. "The Hollow works through exchange. They take something and imprison it—store it somewhere. Your brother's emotions, his memories, whatever made him himself—it didn't just vanish. It's being held. Used, maybe. But it exists somewhere."
 
-Something like relief flickered across her face. "Thank you. Just... thank you for not telling me it's impossible."
+Mira's eyes widened. "You know this?"
 
-They sat in silence for a moment. Then Mira seemed to shake herself.
+"I know how their system works. Not all of it, but enough to know that what's taken isn't destroyed." He hesitated, then continued. "If there's a way to reverse what they've done, I'll find it. That's part of why I'm here—to understand how their bargains work. The mechanism behind it."
+
+"You'd help me?" Her voice caught. "You don't even know me."
+
+"I know what it's like to watch someone you love chase something everyone else thinks is impossible. And I know what it's like to lose people because you weren't there when they needed you most." He thought of Millhaven. Of all the people he'd left behind. "If I can help you find your brother, if I can help you save him—maybe that counts for something."
+
+"Thank you." Something like relief crossed her face. "Just... thank you for not telling me it's impossible. Most people do."
+
+They sat in silence for a moment. The fire crackled. Outside, rain had begun to fall, pattering against the windows.
 
 "So. You're going to the palace tomorrow?"
 
@@ -134,15 +146,27 @@ They sat in silence for a moment. Then Mira seemed to shake herself.
 
 "You seem to know a lot about the court for a merchant."
 
-"I asked questions. Listened to gossip. When you're tracking someone, you learn to gather information quickly." She finished her wine. "Just be careful. Don't trust anyone who offers you easy answers. And don't accept any trades without thinking them through completely."
+"I asked questions. Listened to gossip. When you're tracking someone, you learn to gather information quickly." She finished her wine. "I talked to three different merchants today who'd been to the palace. They all said the same thing—the King is losing control. His advisors are fighting among themselves. Some want to negotiate with the Hollow. Others want to fight. And the King keeps changing his mind about what to do."
 
-"Sound advice."
+"That's not encouraging."
 
-"I've learned it the hard way." She stood, shouldering her pack. "I'm in room seven if you need anything. Or if you learn something that might help me find Torin."
+"No, it's not." She stood, shouldering her pack. "Just be careful. Don't trust anyone who offers you easy answers."
+
+"Sound advice. I learned that lesson the hard way already."
+
+Mira paused, studying him. "You made a trade with them, didn't you? The Hollow."
+
+"Not with the Hollow. But I've paid a heavy price for what I know." He didn't elaborate. Some costs were too personal to share with someone he'd just met.
+
+She seemed to accept his answer. "Then you know. You know what it's like to lose something you can't get back."
+
+"I do."
+
+"Good. Then maybe you won't think I'm crazy for going after my brother." She managed a tired smile. "I'm in room seven if you need anything. Or if you learn something at the palace that might help me find Torin."
 
 "Where will you be tomorrow?"
 
-"Asking more questions. Chasing more rumors. Same as every other day." She managed a tired smile. "Good luck with the King. Try not to let him throw you in the dungeon."
+"Asking more questions. Chasing more rumors. Same as every other day." Her smile faded. "Good luck with the King. Try not to let him throw you in the dungeon."
 
 "I'll do my best."
 
@@ -150,73 +174,31 @@ She left, and Cassian sat alone at the table. The common room was emptying now, 
 
 ---
 
-That night, Cassian dreamed.
+Cassian dreamed.
 
-Not of his mother—those dreams were impossible now, her face erased from memory. Instead, he dreamed of the old marketplace beneath the earth. The Dealer standing in darkness, void-eyes watching.
+Not of his mother—those memories were gone, traded away. Instead, he stood in a city square he didn't recognize. Ancient architecture, weathered stone. In the center, a young man with golden eyes held something bright in his palm.
 
-**"You paid the price,"** the Dealer's voice echoed through the stone chamber. **"Now you must learn what you bought."**
+A young Draven. Before whatever he'd become.
 
-The scene shifted. Cassian saw a city—not Arvenstead, but somewhere older. In the city square, a man stood on a platform. Young. Handsome. Wearing fine clothes and holding something golden in his palm.
+"I can take it from you," dream-Draven said to a woman kneeling before him. She was crying, clutching at his robes. "All your grief. All your shame. You'll never feel it again."
 
-Draven.
+"Please," she whispered.
 
-"I offer you freedom," dream-Draven said, his voice carrying across the square. "Freedom from your suffering. From your debts. From your shame. All I ask is a simple trade—your pain for my peace."
+He opened his hand. Golden light spilled out, wrapped around her like chains made of silk. When it faded, she stood—calm, smiling, empty.
 
-He held up a golden locket. Beautiful. Terrible.
+"Thank you," she said. "Thank you for freeing me."
 
-"Open this, and your suffering ends. All of it. I promise you—no tricks, no deception. You will feel nothing. And feeling nothing is better than feeling what you feel now. Isn't it?"
+And Draven smiled. Not with cruelty. With satisfaction. Like a merchant after a fair exchange.
 
-The crowd surged forward. Desperate. Eager. One by one, people opened the locket. One by one, Cassian watched the light fade from their eyes. Watched them become empty vessels, smiling and calm and hollow.
+The dream began to fragment. Images flashing: the Dealer's void-eyes. His father's journals. The coin burning. Mira searching empty streets. Draven standing over a city of hollow vessels, all of them smiling, all of them thanking him for the freedom he'd given them—
 
-And Draven smiled. Not with cruelty, but with satisfaction. Like a merchant completing a successful transaction.
+Cassian woke gasping. Dawn light crept through the window. The coin was cool against his chest, but the dream lingered—that image of himself and Draven, both offering bargains, both getting what they wanted.
 
-Like Cassian himself when a difficult trade finally balanced.
+But there was a difference, he told himself. Draven took everything and gave only emptiness in return. Cassian was trying to find a way to restore what had been taken. To break the system, not exploit it.
 
-The dream shifted. Now he saw Mira's brother—Torin—holding the locket. Three days of holding it, turning it over in his hands. And then, finally, opening it. The light draining from his eyes. His sister screaming—
+*Wasn't he?*
 
-**"He is coming,"** the Dealer's voice cut through the vision. **"He seeks what you seek. Find it first, or all you have sacrificed will be for nothing."**
-
-"Can he be defeated?" Cassian asked the darkness.
-
-**"No. Not by you. Not alone."** A pause. **"But you already knew that, didn't you? That's why you offered to help the girl in the tavern. Why you accepted the guild member's summons. Why you'll promise the King what he wants to hear. You tell yourself it's compassion. But every connection you make serves your purpose. You're collecting allies."**
-
-"That's not—I'm just trying to help them"
-
-**"Are you?"** The Dealer's void-eyes seemed to bore into him. **"The girl wants her brother back. You want information about the Hollow. The King wants victory. You want the fragment. Everyone trades. Everyone pays. The only question is whether you'll admit that your help always has a price—even if you don't say it aloud."**
-
-The darkness pressed closer.
-
-**"Tomorrow you will make trades you think are fair. You will take what you need and tell yourself it was necessary. Just like he does."** A terrible pause. **"The difference between you and Draven Kane is thinner than you think. You both understand bargains. You both know how to find what people want most. The only difference is how you use that knowledge—and how long until desperation erodes whatever principle you think separates you from him."**
-
-"No," Cassian said. "I'm nothing like him."
-
-**"Then prove it. When the time comes, when you hold power over someone desperate—when you could extract anything from them because they need what you offer—prove you're different. Prove the coin chose better with you."**
-
-The Dealer began to fade.
-
-**"Because if you don't, then I made a very poor trade twenty-three years ago when I helped your father find that coin."**
-
-Cassian woke gasping, sweat-soaked. Dawn light crept through the window. The coin was cool against his chest, but the dream's words remained.
-
-*The difference between you and Draven Kane is smaller than you think.*
-
-He tried to push the thought away. He was nothing like Draven. He helped people. He tried to make fair trades. He—
-
-But the Dealer's question remained: *Or are you trading their desperation for your own purposes?*
-
-He thought of Mira. Her desperate hope. His promise to help find a way to save her brother.
-
-He'd meant it when he said it. But was he helping her? Or was he using her grief to gain an ally? Someone who knew the city, who had information, who could be useful?
-
-The line between help and exploitation felt thinner than it had yesterday.
-
-Cassian dressed slowly, strapping his father's journals into his pack. The coin went into his pocket, heavy and warm. He looked at himself in the cracked mirror above the washbasin. Same face. Same eyes. But something had changed.
-
-He was going to the palace today. To advise the King. To gain access to records and fragments and power. And every step felt like walking deeper into a web he didn't fully understand.
-
-*Just don't become what you're fighting,* he told himself.
-
-But the Dealer's voice whispered back: *Too late. You already are. The question is how far you'll go.*
+He pushed the uncertainty away and dressed, strapping his father's journals into his pack. The coin went into his pocket. Time to face the King.
 
 ---
 
@@ -224,50 +206,88 @@ He found bread and weak tea in the common room. No sign of Mira. She was probabl
 
 Cassian tried not to think about whether he could actually help her. About whether he'd made a promise he couldn't keep.
 
-The palace stood at the city's highest point, its white stone walls gilded by morning sun. Guards in formal dress lined the approach—twice as many as normal, Cassian guessed. Security was tight. The kingdom was preparing for war.
+The palace stood at the city's highest point, its white stone walls gilded by morning sun. Guards in formal dress lined the approach—twice as many as normal, Cassian guessed. The kingdom was preparing for war.
 
-He joined the line of petitioners, scholars, and supposed advisors. All answering the King's summons. All claiming they could help. The guards processed them slowly, checking credentials, asking questions, turning away anyone suspicious.
+He joined the line of petitioners, scholars, and supposed advisors. All answering the King's summons. All claiming they could help. The guards processed them slowly, checking credentials, asking questions, turning away more than they admitted.
 
-When Cassian's turn came, he presented the summons. The guard studied it carefully.
+When Cassian's turn came, he presented the summons. The guard studied it carefully, then looked up at him with skeptical eyes.
 
-"Ledger-keeper from Millhaven. Says here you have knowledge of the Hollow's methods."
+"Ledger-keeper from Millhaven. Says here you have knowledge of the Hollow." He didn't sound impressed. "Everyone claims they understand the Hollow. So far, none of their intel has proved useful to the King's council. What makes you different?"
 
-"I do."
+"I know what they do," Cassian said, "and I understand how it works."
 
-"Prove it."
+"Enlighten me."
 
-Cassian chose his words carefully. "The Hollow doesn't conquer. It offers. Every person who becomes hollow makes a choice. They trade away suffering in exchange for emptiness. It's voluntary. That's what makes it so effective—people willingly accept their loss."
+Cassian chose his words carefully. "The Hollow doesn't conquer. It bargains. Every person who becomes hollow makes a choice—they trade their suffering for emptiness. It's voluntary. That's what makes it so effective. People accept willingly because they're desperate, and the Hollow offers exactly what they need most: an end to pain."
 
-The guard's expression shifted. "How do you know this?"
+"That's common knowledge," the guard said dismissively. "Try again."
 
-"Because I've seen it. I've seen the contracts they sign. I've spoken with refugees who barely escaped." He met the guard's gaze. "And I know exploitation when I see it."
+"The common knowledge is wrong," Cassian countered. "People think the Hollow is offering freedom, but that's not what's happening. They're offering a transaction. A bargain. And like any bargain, there are terms. Rules. Mechanisms that govern how the exchange works." He leaned forward slightly. "The Hollow isn't some unknowable force. It's a system. And systems can be understood. Can be countered."
 
-The guard studied him for a long moment. Then he nodded. "Wait here."
+The guard's expression shifted from skepticism to interest. "You're saying there's a way to fight them?"
 
-Ten minutes later, a palace official arrived—a thin man in expensive clothes who introduced himself as Lord Herrick, the King's chamberlain. He looked Cassian up and down with obvious distaste.
+"I'm saying there's a way to understand them. Which is the first step to fighting them." Cassian met his gaze. "The King asked for advisors who could help him understand his enemy. I can do that."
 
-"You're the ledger-keeper?"
+The guard studied him for a long moment, then glanced at his companion—a younger guard who'd been listening with interest.
+
+"What do you think, Ryan?" the older guard asked.
+
+"I think he sounds more convincing than the fortune-teller we had this morning," Ryan said. "Or the priest who wanted to pray the Hollow away."
+
+The older guard snorted. "Low bar to clear." He looked back at Cassian. "All right. But if you're wasting our time, the chamberlain will have you thrown out. And trust me, you don't want to cross Lord Herrick."
+
+"Understood."
+
+"Wait here."
+
+The guards conferred briefly, and the younger one—Ryan—went inside. Cassian stood in the courtyard, watching the flow of petitioners. Most looked desperate. A few looked opportunistic, the kind who saw a kingdom in crisis as a chance for profit. None looked like they had real answers.
+
+After what felt like an eternity but was probably only ten minutes, Ryan returned with a palace official in tow—a thin man in expensive clothes who moved with the precise efficiency of someone who valued every second. He looked Cassian up and down with obvious distaste, taking in the travel-worn clothes, the mud-stained boots, the lack of any visible wealth or status.
+
+"Lord Herrick," the older guard said respectfully. "The King's chamberlain."
+
+Herrick didn't acknowledge the introduction. "You're the ledger-keeper?"
 
 "I am."
 
-"The council meets this afternoon. You'll present your knowledge then." His eyes were cold. "If your information proves false or worthless, you'll wish you'd stayed in your village."
+"From Millhaven. A village that barely exists on any map." Herrick's voice was cold, clipped. "What makes a village accountant think he can advise the King?"
 
-Herrick turned and walked back toward the palace, clearly expecting Cassian to follow.
+"I don't claim to advise on matters of state," Cassian said evenly. "But I understand how the Hollow operates. How their bargains work. The mechanisms behind what they're doing to your kingdom."
+
+"Do you." It wasn't a question. Herrick pulled a small notebook from his coat and consulted it. "We've had eleven people claiming knowledge of the Hollow this week. One was a priest who insisted prayer would solve everything. Three were merchants trying to sell us weapons that supposedly work against hollow converts. Two were charlatans offering protective charms. The rest were simply fools." He snapped the notebook shut. "Which are you?"
+
+"The twelfth person. The one who's actually telling the truth."
+
+Herrick's eyebrow rose fractionally. "Confidence. Or desperation?"
+
+"Necessity," Cassian said. "My town was threatened by the Hollow. I couldn't afford to be wrong about how they work. So I learned. I studied. I bargained to gain knowledge that most people don't have access to."
+
+"Bargained?" Herrick's eyes sharpened. "With whom?"
+
+"Those who understand the old ways. The principles that govern the old bargains." Cassian held his gaze. "I paid a price for what I know. A heavy price. That's how I know it's genuine."
+
+Herrick studied him for a long moment. Then he turned to the guards. "Is he cleared to enter?"
+
+"Yes, my lord. The summons is genuine, signed by the guild."
+
+"Very well." Herrick looked back at Cassian. "The council meets this afternoon at the fourth bell. You'll present your knowledge then. If your information proves worthless, you'll regret wasting our time. The King has no patience for fools, and neither do I."
+
+"Understood."
+
+"Follow me."
 
 The gates swung open.
 
-Cassian touched the coin in his pocket one last time. It was burning now, almost painful against his skin. Another fragment was close. Very close.
+As Cassian stepped through, the coin suddenly flared hot against his chest—not burning, but pulsing with recognition. Another fragment. Close. Very close.
 
-He thought of Mira, somewhere in the city, searching for a brother who might be beyond saving.
+*In the palace,* Cassian realized. *Another fragment is in the palace.*
 
-He thought of Millhaven, probably hollow by now because he'd abandoned them.
+Which meant either the King had one and didn't know it, or someone at court was playing a far deeper game than anyone suspected.
 
-He thought of the Dealer's words: *The difference between you and Draven Kane is smaller than you think.*
+He thought of Mira, somewhere in the city, searching for a brother who might be beyond saving. He thought of the refugee family on the road. He thought of the dream—Draven and himself, two sides of the same coin.
 
 Then he stepped through the gates and into a world where every word, every gesture, every trade could mean the difference between salvation and damnation.
 
 The palace swallowed him whole.
 
-Behind him, the gates closed with a sound like a tomb sealing shut.
-
-And in the city below, the Hollow preachers continued their work, offering peace to the desperate and freedom to the suffering, one deal at a time.
+And in the city below, the Hollow preachers continued their work, offering peace to those in pain, one deal at a time.
