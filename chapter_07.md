@@ -12,41 +12,61 @@ Cassian ignored him. He bowed to the King. "Your Majesty. Thank you for hearing 
 
 King Aldric gestured to an empty chair. His voice was rougher than Cassian expected, gravelly with exhaustion. "Sit. Speak. We're listening. Though I'll warn you—we've heard seventeen advisors this week. Sixteen are now in the dungeon for wasting our time. Try not to be the seventeenth."
 
-Cassian sat. Twenty pairs of eyes fixed on him. He took a breath and began.
+Cassian sat. Twenty pairs of eyes fixed on him. He took a breath.
 
-"The Hollow doesn't conquer cities through military force," he said. "It conquers through trade. Every person who becomes hollow makes a voluntary exchange—their suffering, their pain, their debts, in return for emptiness and peace. It's not coercion. It's not mind control. It's a choice."
+Before he could speak, a general—perhaps sixty, with scars across his knuckles and a face that had seen too many battles—spoke up. "Your Majesty, with respect, we've already discussed defensive strategies. We fortify the eastern approach, station archers on the high walls, and we can hold them for weeks. What can this... ledger-keeper possibly add?"
 
-"We know this," a general interrupted. He was perhaps sixty, with scars across his knuckles and a face that had seen too many battles. "Tell us something useful. How do we stop people from making that choice?"
+"You can't hold them at all," Cassian said. The room went silent. "Not with conventional defenses. You're preparing for the wrong kind of siege."
 
-"You can't," Cassian said flatly. "Not directly. A willing trade can't be overruled without offering a better deal. All you can do is give people hope instead of despair. Give them reasons not to trade away their humanity."
+"Explain," King Aldric said.
 
-"Platitudes," the nobleman in red scoffed. "We need military strategy, not philosophy."
-
-"You need both," Cassian shot back. "Because your military strategy fails the moment Draven offers your soldiers an end to their fear. How do you command an army when half of them would rather turn on you than fight?"
+"Every day your soldiers stand on those walls, Draven will be below offering them peace. An end to their fear. Their pain. Their doubts about whether this city is worth dying for." Cassian met the general's gaze. "How long before your own defenders open the gates from the inside? How do you command an army when half of them would rather surrender than fight?"
 
 That landed. Several council members shifted uncomfortably.
 
-King Aldric leaned forward, studying Cassian with new interest. "You speak as if you know our enemy personally. Have you met him?"
+The general's face darkened. "My soldiers are loyal—"
 
-"No. But I've studied his methods. I've seen the aftermath of his trades. And I know—" He hesitated. This was the dangerous part. "I know he possesses an artifact of immense power. A medallion that allows him to manipulate the human heart. To cheat the balance that normally governs our world."
+"Your soldiers are human. And Draven has perfected the art of exploiting that." Cassian leaned forward. "But there's a weakness in his method. The Hollow's methods require conversation. Persuasion. They need to speak with your soldiers in order to negotiate."
+
+"So?" the general said. "How does that help us?"
+
+"Silence the Hollow," Cassian said simply. "The moment they approach your walls, sound the war drums. Constant, deafening rhythm. Horns. Bells. Battle cries in rotation—different companies shouting different chants so there's never a moment of quiet. Make it impossible for the Hollow to be heard."
+
+The room went quiet as they considered this.
+
+"They can't offer trades if no one can hear the offer," Cassian continued. "And even if a few words get through, the Hollow's method requires careful, personal appeals. They need to speak to each person's specific pain. Generic shouts won't work—they need individual conversations. Deny them that, and they're just ordinary soldiers. Worse, actually, because they fight without fear or self-preservation. They'll throw themselves at your walls carelessly while your defenders have every reason to stay alive."
+
+The general's expression shifted from skepticism to interest. "That...could be effective. It's remarkably simple."
+
+"The best strategies often are," Cassian said. "Draven's power is in understanding what people want. Rob him of the ability to communicate that understanding, and he's lost his greatest weapon."
+
+"His power," the King repeated slowly. "You speak as if it's more than just persuasion. As if there's something... supernatural about his ability to sway people."
+
+Cassian hesitated. This was dangerous territory. But the King was sharp—he'd caught the implication. There was no point in half-truths now.
+
+"It is more than persuasion, Your Majesty," Cassian said carefully. "Draven possesses an artifact. A medallion of immense power that allows him to perceive what people value most—their fears, their loves, their desperate needs. It grants him insight into the human heart that no ordinary person could have. That's why his offers are so perfectly tailored, so impossible to resist. He knows exactly what each person wants before they speak."
 
 The room went very quiet.
 
-"How do you know this?" Herrick's voice was sharp.
+Lord Herrick leaned forward. "An artifact. You're certain of this?"
 
-Cassian met his gaze. "Because I possess one too."
+"Yes."
 
-He pulled the coin from his pocket and set it on the table.
+"How?" the King demanded. "How could you possibly know this? Such artifacts are legend—stories from the Age of Fragments. Even if they existed once, they're long lost."
+
+Cassian felt the weight of the coin in his pocket, warm against his chest. He could deflect. Claim his father's research, refugee accounts, educated guesses. But the King's eyes were boring into him, and the lie would be transparent.
+
+"Because I possess one too," Cassian said. He pulled the coin from his pocket and set it on the table.
 
 The reaction was immediate. Gasps. Several people stood. The general's hand went to his sword hilt. But King Aldric held up a hand, silencing them.
 
 "Peace," the King said. He studied the coin with intense focus, and Cassian saw something flicker in his eyes. Recognition? Fear? "I've heard stories of such artifacts. My grandfather's grandfather spoke of them in his journals. But I thought they were legend."
 
-"They're real," Cassian said. "And Draven has corrupted his. He's found a way to profit without paying. To make trades where others bear his costs. That's why the Hollow exists—every person who becomes hollow is carrying debts that should have been his."
+"They're real," Cassian said. "This coin grants me insight into value—into what people want, what they fear, what they'd trade away. It's how I understand Draven's methods so well. He has one too, but he's corrupted his. Found a way to profit without paying the price. To make trades where others bear his costs. That's how the Hollow came to be. Every person among them is carrying debts that should have been Draven's."
 
-"That can't happen," someone said. "All the old stories say trades must balance—"
+"That never happened in the old stories," someone said.
 
-"It can happen if you know how to exploit the rules." Cassian picked up the coin, felt its warmth. "And he's perfected the technique. He's been doing this for years, building his power, creating an army of debt-bearers. And now—" He looked at the King. "Now he's coming here. To your city. Because there's another coin hidden somewhere in this capital city. And if he gets it, he'll be unstoppable."
+"Normally it *can't* happen, but Draven learned how to use his gift to exploit others." Cassian picked up the coin, felt its warmth. "And he's perfected the technique. He's been doing this for years, building his power, creating an army of debt-bearers. And now—" He looked at the King. "Now he's coming here. To your city. Because there's another coin hidden somewhere in this capital city. And if he gets it, he'll be unstoppable."
 
 The silence that followed was deafening.
 
@@ -134,17 +154,17 @@ He focused on Corvan, letting his perception open. Saw the shimmer of value arou
 
 Something else. Something hollow.
 
-Cassian frowned. He pushed his perception deeper, trying to understand what he was sensing. The impressions came in fragments, abstractions. *Children. Love. Loss.* But the quality was wrong. Distant. Like hearing music through a wall.
+Cassian frowned. He pushed his perception deeper, trying to understand what he was sensing. The impressions came in fragments, abstractions. *Children. Love. Loss.* But the quality was wrong. Distant and thin, like hearing music through a wall.
 
-Was it corruption? Or just trauma? He couldn't tell.
+Was it corruption? Or just the weight of trauma and guilt? He couldn't tell for certain, but something about those impressions was off-putting.
 
 "He's telling the truth," Cassian said carefully. "He made the trade. He regrets it. The guilt is genuine."
 
 Relief flickered across several faces. Even Corvan looked grateful.
 
-But something nagged at Cassian. Something about those impressions. The way they felt hollow, distant. Like they'd been...
+But something nagged at Cassian. Something about those impressions. The way they felt thin and distant, like they'd been diluted somehow.
 
-No. He was seeing corruption everywhere now, after what the Dealer had told him. Corvan's guilt was real. His regret was real. Cassian could see that clearly.
+No. He was seeing corruption everywhere now, after what the Dealer had told him. Corvan's guilt was real. His regret was real. Cassian could see that clearly enough.
 
 "Execute him," the general said flatly. "Treason is treason, whether acted upon or not."
 
@@ -154,292 +174,297 @@ Several council members nodded agreement.
 
 Everyone turned to him.
 
-"Your Majesty," Cassian said, his mind racing. "Lord Corvan met with Draven directly. He's seen his methods. Heard his arguments. He might know things about the enemy's plans—military positions, strategies, weaknesses."
+"Your Majesty," Cassian said, his mind racing. "Lord Corvan was one of your most capable commanders before this. You trusted him to lead the eastern defenses. That trust wasn't misplaced—he has strategic knowledge, military experience, connections throughout your forces. Executing him wastes all of that."
 
-"We've tried interrogation," Herrick said. "He's been trained to resist. We've gotten nothing useful."
+"He's a traitor," someone objected. "We can't—"
 
-"But I can trade for it," Cassian said. The idea was forming even as he spoke. "If Lord Corvan is willing. Information for..." He hesitated. What could he offer a condemned man? What could balance military intelligence worth thousands of lives?
+"He attempted treason," Cassian corrected. "And he stopped himself. Reported his own crime." He looked at Corvan, seeing the man with his coin-sense. The guilt. The shame. And underneath it all—fierce, desperate love for his children. That was the weakness Draven had exploited. "The question is: why did he almost betray you?"
 
-He thought of Mira. Of her brother Torin, holding that locket for three days before finally opening it. Trading his grief for emptiness because he couldn't carry the pain anymore.
+"For his family," Herrick said quietly. "Draven offered to spare his lands. His children."
 
-Corvan was carrying pain too. The guilt of betrayal. The knowledge of what he'd almost done. The faces of his children, whom he'd nearly sold for a promise.
+"Exactly." Cassian turned to the King. "Lord Corvan is valuable. Experienced. But he has a vulnerability that your enemy knows how to exploit. As long as he has people he loves more than his duty, Draven can use them against him." He paused. "What if we removed that vulnerability?"
 
-"For mercy," Cassian said slowly. "Not a pardon. But... freedom from the memories that torment you. The guilt. The shame. The faces of your children that haunt you when you close your eyes. I might be able to take those from you. In exchange for everything you know about Draven Kane."
+The room went quiet.
 
-The room erupted.
+"What are you suggesting?" the King asked carefully.
 
-"That's monstrous," someone said.
+Cassian met his gaze. "The coin I possess can execute bargains. This includes bargains for one's memories. If Lord Corvan were willing—if he agreed—I could take the memories of his children from him. Their faces. Their voices. Every moment he's spent with them. Everything that makes them precious to him."
 
-"Tampering with a man's mind—"
+Corvan made a strangled sound.
 
-But Corvan was staring at Cassian with something like desperate hope. "You can do that? Take specific memories?"
+"Without those memories," Cassian continued, voice steady despite the horror of what he was proposing, "Draven loses his leverage. Lord Corvan would have no family to protect, no weakness to exploit. He could serve you without that vulnerability. And in exchange for this... sacrifice... he gives you everything he knows about Draven's forces, his strategies, his plans. And he lives."
 
-Cassian's mouth was dry. Could he? He'd only seen it done once—by the Dealer, who'd ripped his mother's face from his mind with terrible precision. But he understood the principle now: the coin perceived value in all forms, including memories. And when he focused on someone, he could sense what they valued most—their deepest needs, their heaviest burdens. If he could sense memories, perhaps he could grasp them. Transfer them.
+"That's monstrous," someone breathed.
 
-It was theory. Dangerous theory. But Corvan was already broken, and they needed what he knew.
+"Yes," Cassian agreed quietly. "It is. But it's also necessary. You lose nothing—he was going to be executed anyway. Instead, you gain an experienced commander who can't be turned, and critical intelligence about your enemy. Lord Corvan loses much that matters to him, but he is allowed to live. To serve. He can redeem himself through years of loyal service, knowing he once had children but unable to remember why he cared about them."
 
-"I can try," Cassian said carefully. "Someone taught me—showed me—that memories can be traded like anything else. I've never attempted it myself. But when both parties agree, if he's willing, it should be possible."
+He looked at Corvan. "It's a cruel mercy. But keeps much more than he would if executed."
 
-"Should?" Herrick said sharply. "You're not certain?"
+Corvan's face had gone pale. "My children. You want me to forget my children?"
 
-"No," Cassian admitted. "For all I know, I might damage his mind. Or my own. Or the trade might simply fail. I don't know."
+"I want to give you a choice," Cassian said. "Die with those memories intact, knowing you nearly betrayed everything for them and failed. Or live without them. Serve the King with no divided loyalties. Be the commander you were before Draven found your weakness." He paused. "Your children will live on. You just won't know them. You won't be vulnerable through them."
 
-The council erupted again. Too dangerous. Too uncertain. Too much risk.
+"That's not living," Corvan whispered. "That's—"
 
-But King Aldric raised a hand, silencing them. He studied both men carefully—Corvan, desperate and broken, and Cassian, offering something that should be impossible.
+"That's the best I can do," Cassian said. "Your life and your service, in exchange for every memory that makes you exploitable. I understand that it's devastating. But you conspired with the enemy. Cruel mercy may be the best you can hope for."
 
-"Lord Corvan," the King said. "You understand the risks? That this might fail? That it might leave you worse than you are now?"
+The King was studying both of them intently. "Lord Herrick?"
+
+Herrick looked troubled. "Lord Corvan is—was—one of our finest military minds. We can't trust him. But if his vulnerability were truly removed..." He trailed off. "It's barbaric. But we're at war. We need capable commanders."
+
+"And the intelligence?" the general asked. "How do we verify it?"
+
+"Can actually do this?" a nobleman challenged. "Remove memories? That's fantasy. You could be offering impossible terms just to delay his execution."
+
+"A fair point," the King said, his eyes fixed on Cassian. "Can you prove this power of yours? Before we let a condemned traitor bargain with his life?"
+
+Cassian felt the weight of the room's skepticism. He'd only seen this done once—by the Dealer, who'd ripped his mother's face from his mind with terrible precision. He'd never attempted it himself. But the principle seemed sound: the coin facilitated willing trades, and memories had value.
+
+"I believe I can," Cassian said carefully. "But I've never attempted it before. I can attempt it...but it could damage his mind. Or fail completely. I don't know for sure..."
+
+The King held up a hand. "Lord Corvan. Do you accept the risk? That it may damage your mind in ways we cannot predict? And do you accept the trade—your memories of your children, for your life and chance to serve again?"
+
+Corvan looked at Cassian, then at the King. Silence stretched out. Cassian could see the war happening behind the man's eyes—love battling survival, desperation battling horror.
+
+Finally, Corvan spoke, his voice barely a whisper. "If I do this... if I give up those memories... will they know? My children. Will they know their father forgot them?"
+
+"They'll know you serve the King," Herrick said quietly. "They'll know you chose duty."
+
+"They'll think I abandoned them," Corvan said. "Chose loyalty to the crown over love for them."
+
+"Yes," Cassian said. There was no point in softening it. "They will."
+
+Corvan closed his eyes. Tears streamed down his face. When he opened them again, there was a terrible resignation there. "What the King is offering me is poetically just, given my crime. I agreed to sacrifice the kingdom for my children. Now I must sacrifice my children—or at least my memory of them—for the kingdom." He looked at his bound hands. "I'll still have lost something precious. But I'll have a renewed, singular focus on protecting the realm. Which might at least help save my family from the destruction I nearly caused."
+
+He met Cassian's gaze. "I accept. Make the trade. Take every memory. Turn me into someone Draven can't use. Someone who can serve without being turned."
+
+The King studied them both for a long moment. Then he nodded. "Very well. Master Cassian—please try to remove the memories. If you succeed, Lord Corvan may share his intelligence and live. If you fail..." He looked at Corvan. "We'll give you a swift execution."
+
+The room went silent.
+
+Cassian's hands trembled as he stood. The guards brought Corvan forward. Up close, Cassian could see the terror and resignation warring in the man's eyes.
+
+"Are you certain?" Cassian asked quietly.
+
+"No," Corvan whispered. "But do it anyway. Before I change my mind."
+
+Cassian pressed the coin between his palms. It grew warm immediately, almost hot, responding to the weight of what was being offered. He focused his perception on Corvan, searching for the threads of memory connected to his children.
+
+There. He could sense them—not one memory, but thousands, woven throughout Corvan's entire life. A daughter's first breath. Teaching his son to ride. Bedtime stories. Proud moments and fearful ones. Joy and worry and fierce, protective love. They were everywhere, threaded through everything, part of the fundamental architecture of who Corvan was.
+
+"This will hurt," Cassian warned. "Not physically. But after... you'll know something is missing. But you won't know them. Not what they meant to you."
+
+"I understand," Corvan said. "Do it."
+
+Cassian reached out mentally, grasping at those threads of memory. The coin grew searingly hot, facilitating the connection. This wasn't precise surgery—it was extraction on a massive scale. Every memory tagged with love for his children, being pulled away like roots yanked from soil.
+
+For a moment, Cassian could feel them all flooding through him—a daughter's laugh, so bright it hurt. A son asking impossible questions. Teaching them. Protecting them. Worrying about their futures. The weight of being responsible for lives you'd die to protect.
+
+Then the coin absorbed it all, pulling the memories into itself where they dissolved into nothing. Gone. Not transferred. Simply erased. The trade complete: Corvan's vulnerability for his life and service.
+
+The extraction took perhaps thirty seconds. When it ended, both men staggered. Cassian caught himself on the table's edge, gasping. His nose was bleeding slightly. The coin was cooling in his palm.
+
+Corvan stood swaying, his face slack with shock. For a long moment, he just stared at nothing.
+
+"Lord Corvan," the King said carefully. "Are you well?"
+
+Corvan blinked slowly, as if waking from a dream. "I... yes. I think so." He looked around the room, confused. "Why do I feel... numb?"
+
+"Your children," Herrick said quietly. "Do you remember them?"
+
+A long pause. Corvan's face showed confusion, then something worse—awareness without connection. "I... have children?" It wasn't quite a question. More like discovering a fact about a stranger. "How many?"
+
+"I think it's best not to say." the King said.
+
+Corvan nodded slowly, processing this information the way one might process any neutral fact. "I see." No emotion. No recognition. Just... acceptance of facts. Then something flickered in his eyes—realization. "They're why I'm here, aren't they? The treason. I was trying to protect them."
+
+"Yes," Cassian said quietly.
+
+"But I don't..." Corvan's voice caught. Not with emotion, but with the recognition of its absence. "I don't feel anything. I know I should. I know they're mine. But they're just..." He looked at his hands. "What have I done?"
+
+The room was deathly silent. Several council members looked shaken. Even the King seemed disturbed by what they'd witnessed.
+
+"Someone who can serve without being turned," the King said finally, though his voice lacked its earlier certainty. "Someone Draven can no longer exploit." He paused. "The trade is complete. You live, Lord Corvan. And now you'll tell us everything you know."
+
+Corvan nodded slowly, mechanically. "Yes. I'll tell you everything." His voice was unfeeling. "I cannot withhold this from you, my King."
+
+And so he spoke.
+
+He described Draven's camp in detail—the layout, the number of tents, the divisions of forces. He described the man himself: calm, articulate, reading poetry in a campaign chair, making treason sound like wisdom. He described the maps he'd seen spread across a table, positions marked in red.
+
+His voice was steady now. Almost detached.
+
+"He's planning a two-pronged assault," Corvan said. "The main force will approach from the east, as you expect. But he's sending a smaller force—perhaps three thousand—to the north. They'll strike at the supply depots outside the city walls while the main army engages your eastern defenses."
+
+The general was scribbling notes frantically. "When?"
+
+"Tomorrow night. New moon. Dark enough to approach undetected." Corvan's voice was steadier now, as if speaking freely was itself a relief. "He's been moving forces for weeks. Your scouts didn't see them because they're traveling in small groups, converging just outside your patrols' range."
+
+More questions. More details. Troop compositions, supply lines, the location of Draven's command tent, the types of contracts his emissaries carry. Corvan answered everything, holding nothing back.
+
+Cassian stood nearby, focusing his coin-sense on each word despite his exhaustion. Most of it rang true—heavy with substance, carefully remembered. Real information.
+
+Cassian frowned, trying to understand what he was sensing. Was Corvan lying about certain details? Or had Draven fed him false information, knowing it would be extracted?
+
+Finally, the King held up a hand. "Enough. Master Cassian—your assessment?"
+
+Cassian chose his words carefully. "Most of what he's said is genuine. He believes it, and the memories are real. But some details feel secondhand. As if he's remembering what Draven told him rather than what he saw directly. It's possible Draven intentionally fed him false intelligence, knowing Lord Corvan might betray it."
+
+"Which details?" the general demanded.
+
+"The northern force's size and timing. The new moon attack. Those feel... rehearsed. Like someone wanted him to remember them exactly that way." Cassian looked at Corvan. "Did Draven repeat those specific details multiple times during your meeting?"
+
+Corvan thought about it with the same detached precision. "Yes. He mentioned the northern assault three separate times. Made sure I understood the timing."
+
+"Then it's likely misdirection," Cassian said. "The rest—the camp layout, the maps, Draven's demeanor—that all feels genuine. But the specific military intelligence he wanted you to remember? That's suspect."
+
+The King nodded slowly. "A trap within a confession. Clever." He looked at the general. "Verify what we can. Send scouts to check the northern approach, but don't commit forces based on that intelligence alone. Plan for attacks from multiple directions."
+
+He turned to Corvan. "You've proven valuable, Lord Corvan. More valuable alive than dead, it seems. You'll be assigned to Lord Herrick's command. You'll serve under close watch, but you'll serve. That was the bargain."
+
+Corvan nodded slowly, mechanically.
+
+The King nodded. Then turned his head. "Master Cassian—" His eyes were calculating now. "You've proven your value today. Your strategy for defending against the Hollow's psychological attacks. Your ability to verify truth. Your... extraction method." He paused. "You'll have a place in this court. But know that what you've demonstrated today has made you both indispensable and dangerous. Do you understand?"
 
 "Yes, Your Majesty."
 
-"And you still wish to proceed?"
+"Good." The King looked around the council. "We have much to prepare. General, implement Master Cassian's noise strategy immediately. I want drums, horns, and battle cries ready before Draven's forces arrive. And send scouts to verify these troop positions—all of them, not just the northern approach."
 
-"I do." Corvan's voice was steady now. "If I'm to die a traitor, at least let me die without seeing my children's faces in my final moments. Without remembering everything I betrayed. That's worth any risk."
+The council session continued for another hour, but Cassian barely registered it. Orders were issued. Forces deployed. Scouts sent to verify Corvan's intelligence. The general argued about defensive positions, nobles rushed to secure their estates.
 
-The King was silent for a long moment. Then he nodded. "Make the trade. If it succeeds and the information proves valuable, Lord Corvan receives a quick death. Painless. That's more mercy than he deserves, but it's what we can offer." He looked at Cassian. "If it fails—we'll discuss consequences then."
-
-Cassian's hands were shaking as he stood. What was he doing? He had no idea if this would work. No idea what he'd unleash. But the council was watching, and Corvan was waiting, and somewhere in the man's mind was information that could save thousands of lives.
-
-*And you need it,* a voice whispered in his head. *You need to prove yourself. You need access to the King's resources. You need to not fail again like you failed Millhaven.*
-
-Was that why he was doing this? To prove something?
-
-The guards cleared a space. Cassian approached Corvan slowly. Up close, he could see the exhaustion etched in the man's face. The resignation. The guilt eating him alive.
-
-"Are you certain?" Cassian asked quietly. "I'm pretty sure we can't undo this."
-
-"I'm certain." Corvan met his gaze. "Take them. Take the memories of my children's faces. Their voices. Everything that makes them mine. And in return, I'll give you everything I know about Draven Kane."
-
-Cassian nodded, though his heart was racing. He pressed the coin between his palms, focusing. The coin was hotter than usual, almost burning. He reached out with his perception, the same sense that let him detect value in objects and desperation in people. But this time he pushed deeper, searching for the specific weight of memory in Corvan's mind.
-
-There. He could sense them—threads of love and pain, woven together. *Children, faces, voices.* The memories Corvan treasured most, even as they tortured him. They appeared to Cassian's coin-sense like gossamer strands, delicate and precious. He extended his awareness carefully, trying to take hold of them them the way the Dealer had grasped his mother's face.
-
-The coin grew scorching hot in his hands. Cassian gasped but didn't let go. He could feel something shifting—the coin responding to his intent, to both parties' agreement. The trade was balanced. Both sides willing. The coin *should* facilitate it.
-
-He closed his mental grip on the memory-threads and pulled, drawing them toward himself while pushing Corvan's knowledge of Draven back in exchange.
-
-The transfer was violent. Chaotic. Nothing like the smooth extraction the Dealer had performed. Memories ripped from Corvan like pages torn from a book—jagged, incomplete. Faces appeared in Cassian's mind—two daughters, a son—but they were fragmentary, distorted. Their features kept shifting, refusing to solidify.
-
-Children he'd never met, but who now lived in his thoughts like ghosts. Voices calling "Papa" but the sound was wrong, echoing, hollow.
-
-And in exchange, information poured back—but it was raw, unorganized. Military positions tangled with personal memories. Supply lines mixed with emotions. Everything Corvan knew about Draven spilling out in a chaotic flood.
-
-Cassian felt Corvan's memories crash into his mind like a wave. Tasted wine in a tent that smelled of leather and old books. Heard Draven's voice, smooth and persuasive: *"Your children deserve better than dying for someone else's kingdom."* Saw maps spread across a campaign table, positions marked in red. Felt the weight of impossible choices.
-
-The transfer took perhaps thirty seconds, but it felt like hours. When it ended, both men staggered.
-
-Cassian caught himself on the table's edge, gasping. Pain lanced through his skull like a hot needle. The new memories were wrong—invasive and incomplete at the same time. Children that weren't his but felt like they should be, except their faces kept slipping away like water through his fingers. Love that belonged to someone else pressing into his mind like a thorn. And underneath it all, something cold. Something hollow.
-
-Corvan collapsed. Guards caught him before he hit the floor. His eyes were unfocused, mouth slack. For a terrifying moment, Cassian thought he'd broken the man's mind entirely.
-
-"Did it work?" someone asked urgently.
-
-Corvan's eyes focused slowly, like a man waking from a nightmare. "What... what did I trade?"
-
-"Your children," the King said quietly. "Their memories."
-
-"Children?" Corvan's voice was distant, confused. "Do I have children?"
-
-"You did," Herrick said. "But you won't remember them now."
-
-Corvan nodded slowly, mechanically. "Good. That's... good." He looked around the room as if seeing it for the first time. "What was I supposed to tell you?"
-
-"Draven's plans," the King prompted.
-
-"Oh. Yes." Corvan's voice was hollow now. Empty. "His main force will approach from the east, as expected. But he's sent a smaller force around to the north—they'll strike at the supply depots outside the city walls while the main army engages at the eastern gates. A two-pronged assault. He expects you'll fortify the eastern approach, so he's already planned the northern strike as his primary objective."
-
-The general was scribbling notes frantically. "How large is the northern force?"
-
-"Perhaps three thousand. Mixed infantry and cavalry. They'll hit tomorrow night, under new moon. Dark enough to approach undetected."
-
-"Tomorrow?" The general looked up sharply. "That's impossibly fast. Our scouts would have—"
-
-"Your scouts are compromised," Corvan said flatly. "Or dead. He's been moving forces for weeks. You just haven't seen them."
-
-The general's face darkened. He looked at the King. "Your Majesty, we can't take this intelligence at face value. This could be disinformation. If we redeploy forces to the north and leave the eastern approach vulnerable—"
-
-"It could be a trap," another commander agreed. "We'd be dividing our strength based on a traitor's word."
-
-"But if it's true and we ignore it," Herrick said, "we lose our supply lines. The siege becomes unwinnable."
-
-The King held up a hand. "Send scouts. Quietly. Have them verify what they can about northern movements. But also reinforce the eastern walls as planned—we can't leave them exposed." He looked at the general. "How long until we know if this intelligence is accurate?"
-
-"If there's a force of three thousand moving through the northern approach? We should be able to confirm or deny it by dawn tomorrow. If they're not there—"
-
-"Then we know Lord Corvan was fed false information," the King finished. "Or the trade itself was compromised somehow." He looked at the prisoner, then at Cassian. "In which case, both of you will have much to answer for."
-
-Cassian barely heard them. He was still processing what he'd taken—or what he'd tried to take. The memories wouldn't settle properly in his mind. They kept shifting, refusing to integrate. Like trying to hold water in his bare hands.
-
-He focused on one of the daughters' faces. Tried to see her clearly. But the image was blurry. Indistinct. Not like a real memory but like a copy of a copy of a copy. The emotional weight was there—love, fierce and protective—but the actual details kept slipping away.
-
-And underneath, that hollowness. That wrongness.
-
-*They're already corrupted,* he realized with dawning horror. *Draven got to them already. Or I damaged them trying to extract them.*
-
-Either way, he'd accepted poison. And the coin had facilitated it because technically, Corvan *had* given him memories of his children. Just not intact ones. Not real ones.
-
-"Master Cassian," the King's voice cut through his spiraling thoughts. "That was... disturbing to witness. Are you well?"
-
-Cassian forced himself to straighten. "The trade was more difficult than I expected, Your Majesty. I've never attempted anything like that before."
-
-"That was apparent." The King studied him carefully. "The information Corvan provided—do you believe it's accurate?"
-
-Cassian hesitated. In the jumble of memories and intelligence, he'd seen—or thought he'd seen—Draven's war room. Maps. Positions. Plans. But it was all tangled together, fragmentary, possibly corrupted.
-
-"I received something from him," Cassian said carefully. "Intelligence, memories, all mixed together. But I can't guarantee its accuracy. He could have been fed false information before he returned. Or..." He struggled with how much to admit. "Or the memories themselves could have been corrupted somehow. I don't know enough to say for certain."
-
-The general grunted. "At least he's honest about it. We'll verify what we can through scouts. If the intelligence proves false, we'll know tomorrow."
-
-"And if it proves true," Herrick said quietly, "then despite the... irregularity... Master Cassian may have just saved the city."
-
-"We'll see," King Aldric said. His eyes were hard as they fixed on Cassian. "You've given us much to consider. Both about the Hollow's methods and your own abilities. You've earned a place in this court—but also earned considerable scrutiny. Don't make me regret allowing you to keep that coin."
-
-"Yes, Your Majesty."
-
-Guards led Corvan away. The man went without resistance, his face peaceful in a way that made Cassian's stomach turn. Empty. Hollow.
-
-*What have I done?*
-
----
-
-The council session continued for another hour, but Cassian barely registered it. Orders were issued. Forces deployed. Scouts sent to verify Corvan's intelligence. Nobles rushed off to secure their estates. The general argued about defensive positions.
-
-Cassian sat in his chair, the hollow memories whispering at the edge of his consciousness. Children's faces he couldn't quite see. Voices he couldn't quite hear. And beneath it all, something watching. Waiting. A coldness that had nothing to do with temperature.
-
-Finally, Lord Herrick dismissed him. "The King wants a full report by morning. Everything you know about the Hollow's methods. Everything you learned from that trade. We'll send someone to your lodgings for it."
-
-"What lodgings?"
-
-"You're staying at the Broken Wheel, are you not? We know where all the petitioners are staying, Master Cassian. We've known since you entered the city." Herrick's smile was thin. "You're being watched. For your own safety, of course."
+Finally, Lord Herrick dismissed him. "The King wants you available tomorrow. Stay in the city. We know you're at the Broken Wheel—we've known since you entered the capital. You're being watched. For your own safety, of course."
 
 Of course.
 
-Cassian stumbled out of the palace as evening fell. His head throbbed. His vision blurred at the edges. The hollow memories pressed against his thoughts like fingers probing a wound.
+Cassian stumbled out of the palace as evening fell. His head throbbed. The foreign memories pressed against his thoughts like unwelcome guests. Children he'd never met, love that belonged to someone else, all of it feeling thin and wrong.
 
-He'd won. He'd gained the King's attention, proven his value, secured his place in the court. He'd extracted crucial intelligence that might save the city.
+He made it three blocks before he had to stop, leaning against a wall. The stolen memories wouldn't settle. Every time he tried to focus on one—to see a daughter's face clearly, to hear a son's voice—the details slipped away like water through his fingers. Not like forgetting. Like trying to remember something that had never been solid to begin with.
+
+*Copies,* he realized with cold certainty. *These aren't real memories. They're echoes. Impressions.*
+
+Draven had gotten to Corvan first. Not to recruit him—to prepare him. To plant false memories that would feel genuine enough to extract but wouldn't hold up under scrutiny. Everything Cassian had taken was a fabrication, carefully constructed to be believed.
+
+Which meant the intelligence was false too. The northern force, the timing, all of it—designed to be extracted and acted upon.
+
+Cassian's breath came short. He'd done exactly what Draven wanted. Proven his ability to the council, gained their trust, and delivered poisoned intelligence straight into their war planning.
+
+But there was no way to know for certain. Not yet. The memories *felt* wrong, but that could just be his inexperience. The intelligence *seemed* solid. The scouts would verify or deny it by tomorrow.
+
+Tomorrow.
+
+If he was wrong—then he would be the man who delivered crucial intelligence that could save the city.
+
+If he was right—if Draven had played him—then he'd just helped doom it.
+
+He pushed off the wall, forcing himself to keep walking. Either way, there was nothing he could do about it now. The council was acting on the intelligence. The scouts were moving. Tomorrow would tell.
+
+He'd won, hadn't he? He'd gained the King's attention, proven his value, secured his place in the court.
 
 So why did it feel like he'd lost something far more important?
 
-The city streets were quieter now, shops closing early. People retreated to their homes. Tomorrow the Hollow's forces would attack—if Corvan's intelligence was accurate. If it wasn't a trap. If Cassian hadn't just helped spring whatever plan Draven had laid years in advance.
+The city streets were quieter now, shops closing early. People retreated to their homes. Tomorrow—if Corvan's intelligence was accurate—the Hollow's forces would attack. If it wasn't accurate, if it was a trap, if Cassian had just helped spring whatever plan Draven had laid years in advance...
 
-*The difference between you and Draven Kane is smaller than you think,* the Dealer had said.
+Cassian walked aimlessly, lost in thought, the coin heavy in his pocket. The stolen memories whispered. Children calling for a father who'd forgotten them. Love with blurred faces attached. Grief without clear substance.
 
-Cassian was beginning to understand what that meant.
+"You look like hell."
 
-He walked aimlessly, lost in thought, the coin heavy in his pocket. The hollow memories whispered. Children calling for a father who'd forgotten them. Love with no face attached. Grief without substance.
+Cassian's head snapped up. Mira stood near the palace steps, arms crossed, watching him with sharp concern.
 
-He found himself near the palace gardens, in a small square with a fountain that no longer ran. A few vendors remained, packing up their stalls for the night.
+"How long have you been waiting?" he managed.
 
-And there, sitting on the fountain's edge, was Mira.
+"Long enough to hear the rumors coming out of that council chamber." Her expression was carefully neutral. "They're saying you did something impossible. That you ripped memories out of a traitor's mind." She paused. "Is it true?"
 
-She looked up as he approached, and her expression shifted from casual interest to immediate concern. "Saints above—what happened to you?"
+"I tried. I don't know if I succeeded or just made things worse." He looked at her, seeing the calculation behind her concern. "You waited for me. Why?"
 
-"I..." Cassian's voice came out rough. "I made a trade."
+She studied him for a long moment, then seemed to come to a decision. "Come on. You need food and somewhere to sit before you fall over. We can talk away from the palace."
 
-"It went badly." Not a question.
+They found a quiet corner at a street vendor's stall. Cassian sat heavily on a wooden bench, accepting the cup of hot cider she pressed into his hands. The warmth helped, grounding him.
 
-"I don't know. Maybe. I can't tell." He sat heavily beside her, head in his hands. "I tried to do something I wasn't ready for. Something I've only seen done once by something far more powerful than me. And now I don't know if I helped anyone or if I just played into exactly what he wanted."
+"So," Mira said carefully, sitting beside him. "If you can extract memories from people... does that mean you could extract what the Hollow took from my brother?"
 
-Mira was quiet for a moment. Then she pulled a flask from her pack and offered it to him. "Drink. You look like you need it."
+And there it was. The reason she'd waited.
 
-He drank. Whatever it was burned going down, but it helped center him. Gave him something to focus on besides the whispers in his head.
+"I don't know," Cassian said honestly. "What I did today—I barely understand how it worked, and I think I damaged him in the process. The memories I took are..." He struggled for words. "Wrong. Incomplete. Like trying to read a book where someone tore out pages at random."
 
-"Want to talk about it?" Mira asked.
+Her face fell slightly. "So you can't help."
 
-"Not particularly. It's... complicated. And I'm not sure I can explain without breaking several promises to the King."
+"I didn't say that." He met her eyes. "I'm learning. Every time I use this...technique...I learn more about how it works. And I did learn one useful thing today."
 
-"Fair enough." She took the flask back, drank. "Did you find anything that might help me? With my brother?"
+He told her about the northern force. Three thousand soldiers massing near the old aqueduct ruins. The newly converted being trained and organized. The attack planned for tomorrow night.
 
-The question hit him like a physical blow. In all the chaos of the council, the trade, the aftermath—he'd completely forgotten about Mira's desperate search.
+"If your brother was taken three weeks ago," Cassian said, "and if they're gathering the recent converts for this assault, there's a chance he's with that army. It's not certain, but it's the best lead I have."
 
-"No," he admitted. "I'm sorry. There wasn't time. The council was focused on military intelligence, and I—"
+Hope flared in her eyes. Dangerous, desperate hope. "You're certain about the location?"
 
-"It's fine," Mira said quickly. Too quickly. "I understand. You have bigger concerns than one girl's missing brother."
+"As certain as I can be, given the source. The intelligence could be false. Or corrupted. Or—" He stopped himself. "But it's something."
 
-But her voice was hollow. Disappointed. She stood, shouldering her pack. "I should go. I have more searching to do tomorrow."
+Mira was quiet for a moment, processing. Then: "What if we went? Tomorrow. Before the attack. While they're still staging. If I could see Torin, talk to him, maybe—"
 
-"Mira, wait—"
+"Maybe what?" Cassian asked gently. "He won't remember you. Won't feel anything about seeing you."
 
-"It's fine, Cassian. Really. You tried. That's more than most people." She managed a small smile. "Good luck with whatever you're doing for the King. I hope it works out better than you think it did."
+"I know. But at least I'd know he's alive. That there's still something to save." She turned to him, intense. "And you need to see them too, don't you? The newly converted. If you're going to figure out how to reverse what's been done, you need to study them up close."
 
-She started to walk away.
+She was right. The council chamber and secondhand reports weren't enough. If he was going to truly understand the Hollow—understand what he was fighting, what he might be becoming—he needed to see it firsthand.
 
-"Three thousand soldiers," Cassian said suddenly. "Moving through the northern approach. That's where they're massing the newly converted. If your brother was taken three weeks ago, there's a chance he's with that force."
+"It's dangerous," he said. "If they catch us—"
 
-Mira stopped. Turned back slowly. "How do you know this?"
+"I know. But I've been chasing rumors for weeks. This is the closest I've come to really finding out where he is. I have to try." She looked at him. "Come with me. Please. I could use someone who knows hte enemy. And you could use your...gift."
 
-"The trade I made. I learned things. Military positions. Troop movements. It's not confirmed, but—" He met her gaze. "If you're going to search, search northeast of the city. Near the old aqueduct ruins. That's where they're staging."
-
-Hope flared in her eyes. Dangerous hope. "You're certain?"
-
-"No. The information could be false. Or corrupted. Or bait. But it's the best lead I have."
-
-She sat back down beside him, suddenly intense. "Tell me everything."
-
-So he did. Leaving out the details about the coin, about the memory extraction, about his growing suspicion that he'd been manipulated—but giving her the military intelligence. The positions. The timing. Everything that might help her find her brother.
-
-When he finished, Mira was quiet for a long moment.
-
-"You did this for me?" she finally asked.
-
-"I did this for a lot of reasons," Cassian said honestly. "The King needed intelligence. I needed to prove myself. I needed to not fail again like I failed my town." He looked at her. "But yes. Part of me was thinking about you when I made the offer. About your brother. About whether there's still time to save him."
-
-"Thank you," she said quietly. "Even if it doesn't work out. Thank you for trying."
-
-They sat in silence for a moment. Then Mira spoke again, her voice careful.
-
-"What you said before. About trying to do something you weren't ready for. About not knowing if you helped or played into his hands." She looked at him. "That's what I'm most afraid of with Torin. That even if I find him, even if there's a way to bring him back—I'll just make things worse. Trade one kind of emptiness for another."
-
-"Then why keep searching?"
-
-"Because he's my brother. Because I have to try, even if trying is what damns us both." She smiled sadly. "I think you understand that. Trying even when you're not sure. Even when you might be making it worse."
-
-Cassian did understand. Too well.
-
-"The attack is coming tomorrow night," he said. "If you're going to search the northern approach, you need to do it during the day. Before the battle starts. And you need to be careful. If they catch you—"
-
-"I know." Mira stood again. "Come with me."
-
-"What?"
-
-"Come with me. Tomorrow. Before whatever happens happens. You need to see what you're fighting. Really see it. Not through council meetings or secondhand intelligence. And I could use someone who understands how they work. How to maybe break them."
-
-Cassian thought about it. The King expected a report by morning. The palace was watching him. Leaving the city to chase Hollow forces right before an attack was insane.
+Cassian thought about it. The King expected him to stay in the city, to be available. The palace was watching him. Leaving to chase Hollow forces right before an attack was insane.
 
 But when had that stopped him?
 
-"Alright," he said. "Tomorrow. Before dawn. We search the northern approach."
+And the foreign memories whispered in his mind—damaged, thin, possibly compromised. If he'd been played, if the intelligence was false, he needed answers before the attack came.
 
-Mira's smile was genuine this time. "Thank you. I'll meet you at the north gate. Bring whatever you need to defend yourself. And Cassian?"
+"Tomorrow," he said. "Before dawn. We go to the northern approach. But we're careful. We observe. We stay out of sight."
 
-"Yes?"
+Mira's smile was wide and genuine for the first time since he'd known her. "Thank you. I'll meet you at the north gate. Two hours before dawn. Bring whatever you need to defend yourself."
 
-"Whatever trade you made today—whatever you think went wrong—try not to let it get to you. I've seen what guilt does to people. How it eats them from the inside. My brother drowned in it before the Hollow ever touched him." Her eyes were sad. "Don't let it win."
+She stood, shouldering her pack. Then paused. "Cassian? Whatever happened in that council chamber—whatever you think went wrong with that trade—don't let it consume you. I've seen what guilt does to people. How it eats them from the inside." Her eyes were sad. "My brother drowned in it before the Hollow ever touched him. Don't let it win."
 
 Then she was gone, disappearing into the evening crowd.
 
-Cassian sat alone by the fountain. The hollow memories whispered in his mind. Somewhere in the city, Draven's forces were positioning for tomorrow's attack. Somewhere in the city, another fragment waited to be found.
+Cassian sat alone with his cider, watching the city prepare for war. The stolen memories pressed at his thoughts. Somewhere in the city, Draven's forces were positioning themselves. Somewhere, another fragment waited to be found.
 
-And somewhere, his enemy was watching through the poisoned memories Cassian had been foolish enough to accept. Or maybe Cassian had simply damaged himself trying to do something he had no business attempting.
+Tomorrow he'd search for Mira's brother. Tomorrow he'd try to verify the intelligence, to understand if he'd been played. Tomorrow he'd try to be better than he'd been today.
 
-Either way, he'd crossed a line today. Taken something from someone's mind. Changed them fundamentally. For intelligence, yes. For the greater good, maybe. But also for his own purposes. To prove himself. To not fail again.
+But tonight, he just sat at a vendor's stall as darkness fell, carrying memories of children he'd never met.
 
-*The difference between you and Draven Kane is smaller than you think.*
+He started back toward the Broken Wheel as full dark settled over the city. The streets were nearly empty now, just a few late vendors packing up their wares. Cassian's thoughts churned—the trade, the memories, Mira's desperate hope, the attack coming tomorrow—
 
-He touched the coin in his pocket. Still warm. Still pulsing with that strange life.
+A deep horn sounded from the eastern walls.
 
-Tomorrow he'd search for Mira's brother. Tomorrow he'd try to undo some of what he'd helped create. Tomorrow he'd try to be better than he'd been today.
+Then another.
 
-But tonight, he just sat by a fountain that no longer ran, in a city preparing for war, carrying memories of children he'd never met and intelligence that might doom them all.
+Then a third.
 
-A scream cut through the evening air.
+Cassian froze. That was the alarm. The call to arms. But the attack wasn't supposed to come until tomorrow night. Unless—
 
-Cassian was on his feet immediately, running toward the sound. Others were running too—toward the southern gates. Toward the refugee camps outside the walls.
+Fire bloomed along the eastern horizon. Not just one fire. Dozens. Orange flames climbing into the night sky, and from the walls came screams, chaos, the clash of steel on steel.
 
-Fire. He could see it now, rising in orange columns against the darkening sky. Not just one fire. Dozens. The camps were burning.
+"No," Cassian breathed. "No, it's too early—"
 
-And cutting through the smoke and screams, a sound that made his blood run cold: laughter. Calm. Empty. Hollow.
+People poured into the streets around him, panicked, running. Bells began ringing from churches throughout the city—the full alarm now, calling every able-bodied defender to the walls.
 
-The attack wasn't coming tomorrow night.
+The intelligence was wrong. Or he'd gotten it wrong extracting it. Or—
 
-It was coming now.
+*Or it was exactly what Draven intended you to receive.*
+
+The northern force wasn't the primary attack. It was a feint. Corvan's memories, his guilt, his children—all of it carefully constructed. Given to him *to be extracted*. To misdirect. To make Cassian think he had crucial intelligence when all he really had was misdirection.
+
+And Cassian had delivered it straight to the King's council.
+
+More horns. The eastern gates were under assault. But Cassian could hear fighting from the south now too. From multiple directions. A coordinated strike while the defenders were still preparing for tomorrow's battle.
+
+The city was burning.
+
+And somewhere in the chaos, Cassian felt it: a pulse of warmth from the coin against his chest. Once. Twice. Three times.
+
+Another fragment. Not just close now.
+
+Moving. Getting closer with each pulse.
+
+It wasn't just the Hollow attacking the city.
+
+Draven was here.
+
