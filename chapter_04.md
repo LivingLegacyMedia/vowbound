@@ -136,75 +136,83 @@ The emissary looked up as Cassian approached, and his smile was pleasant. Warm, 
 
 "Master Cassian. The ledger-keeper who values precision." Valen gestured to the empty chair across from him. "Please. Sit. I was hoping we'd have a chance to speak."
 
-Cassian remained standing. "You knew I'd come."
+Cassian sat. As he did, his hand moved to his pocket, fingers brushing the coin. It was warm—warmer than usual. He let his awareness extend carefully, quietly, reaching toward Valen the way he'd learned to read merchants in negotiation.
 
-"You have the look of someone who needs answers." Valen leaned back in his chair. "You've seen the refugees, haven't you? The ones who fled their cities rather than accept our help. They tell you stories. Probably very frightening stories."
+Where there should have been the complex shimmer of human desire, fear, ambition, Cassian saw only... smoothness. Like looking at a polished mirror. The emissary reflected everything Cassian tried to read back at him, but revealed nothing beneath.
 
-"They tell me what you do to people."
+*Hollow,* Cassian realized with a chill. *He's already one of them.*
+
+"You have the look of someone who needs answers," Valen said. "You've seen the refugees, haven't you? The ones who fled their cities rather than accept our help. They tell you stories. Probably very frightening stories."
+
+"They told me what you do to people." Cassian kept his voice steady while his perception probed deeper. If Valen was hollow, maybe the contracts themselves held information. He let his awareness drift toward the ledger on the desk.
 
 "What we *offer* people," Valen corrected. "There's a difference. Every person who signs our contracts does so freely. We explain the terms. We answer questions. We hide nothing. And yet they choose us anyway. Do you know why?"
 
-Cassian didn't answer.
+The ledger shimmered with something—a kind of weight. Like looking at a scale perfectly balanced. Cassian focused on it, trying to understand what he was sensing.
 
-"Because we're honest," Valen said simply. "Your magistrate lies. Your king lies. They promise prosperity and deliver poverty. They promise protection and deliver war. They take your taxes and your sons and give you nothing in return but empty words." He tapped the contract ledger. "We give you exactly what we promise. The trade is always fair."
+"Because we're honest," Valen continued. "Your magistrate lies. Your king lies. They promise prosperity and deliver poverty. They promise protection and deliver war. They take your taxes and your sons and give you nothing in return but empty words." He tapped the contract ledger. "We give you exactly what we promise. The trade is always fair."
 
-"You take people's souls."
+*Fair.* The word resonated strangely with the coin's perception. The ledger wasn't just a book—it was a binding mechanism. Each contract in it carried weight, held balance. As if the agreements themselves had power in some dimension Cassian was only beginning to sense.
+
+"You take people's souls," Cassian said, still probing. Could he read the contracts themselves? Sense their true nature?
 
 "We take what they agree to give. And in exchange, they receive relief from suffering they couldn't bear." Valen's expression was earnest, almost sympathetic. "You saw Elara today. Desperate. Drowning in debt. Three children depending on her. Tell me, Master Cassian—what would you have her do? Starve with dignity? Watch her children beg in the streets because she's too proud to accept help?"
 
-"There are other ways to help her."
+Cassian pushed his perception harder, trying to see past the surface of the ledger into the mechanism of the contracts. The coin grew hotter in his pocket, responding to his intent. For a moment—just a moment—he caught a glimpse of something. Lines of connection stretching from the ledger outward, like invisible threads, binding the signed contracts to... something else. Something distant. A central point where all the threads converged.
+
+Then the impression vanished, leaving only a dull ache behind his eyes.
+
+"There are other ways to help her," Cassian said, frustrated. He'd seen something, but not enough to understand it.
 
 "Are there?" Valen raised an eyebrow. "Then why haven't you? Why hasn't your magistrate forgiven her debts? Why hasn't your wealthy merchant guild offered loans? Why hasn't your King sent relief?" He leaned forward. "You know why. Because helping costs them something. But condemning her costs nothing. So they'll let her suffer and call it 'personal responsibility.' We, at least, offer her a choice."
 
-"A choice to stop being human."
+Cassian tried a different approach. "Show me one of the contracts. Let me see the exact terms you're offering."
 
-"A choice to stop *suffering*." Valen's voice was patient, as if explaining something simple to a child. "Humanity is suffering, Master Cassian. Love means loss. Hope means disappointment. Desire means frustration. We offer people freedom from that endless cycle. And they choose it. Gratefully."
+Valen's smile widened. "Of course. Transparency is our foundation." He pulled a blank contract from beneath the ledger and slid it across the desk. "This is the standard form. Each one is customized based on what the signatory needs, but the format remains the same."
 
-Cassian's hands clenched into fists. "You're making evil look like mercy."
+Cassian picked up the parchment, and immediately the coin's perception flooded him with information. The contract wasn't just words on paper—it was a framework. A mechanism for transferring value. He could sense the nature of it, the way it would bind someone's essence and redirect it to that central point he'd glimpsed before.
+
+But understanding the mechanism wasn't the same as knowing how to break it. The contracts were perfectly balanced, mathematically sound. Like a well-built lock—he could see how it worked, but that didn't tell him where the key was.
+
+"A choice to stop being human," Cassian said, setting the contract down. His head throbbed from the effort of perception.
+
+"A choice to stop *suffering*," Valen corrected patiently. "Humanity is suffering, Master Cassian. Love means loss. Hope means disappointment. Desire means frustration. We offer people freedom from that endless cycle. And they choose it. Gratefully."
+
+"You're making evil look like mercy." Cassian reached for his perception one more time, desperate. There had to be something—some flaw, some weakness in the system.
 
 "I'm offering desperate people relief from impossible situations." Valen's smile never wavered. "Fair exchange. Informed consent. Balanced scales. The only difference between us and your magistrate is that we deliver what we promise."
 
-"And what did you promise the people of Elara's city? Before you hollowed them out?"
+This time, when Cassian's perception touched the contracts, he felt something new. A resistance. Not from the contracts themselves, but from Valen. The emissary's hollow presence suddenly pushed back against Cassian's probing, like a door slamming shut.
 
-"We promised relief. And we delivered it." Valen opened the ledger, flipped through pages of contracts, each signed in different hands. "Every person who signed these documents knew the terms. Read them carefully. Asked questions. And chose freely. Some regretted it later, yes. But that's the nature of choices, isn't it? We all make trades we regret."
+"You're quite curious about our methods," Valen said. His tone hadn't changed, but something in his eyes had sharpened. "Studying them, perhaps? Looking for weaknesses?"
 
-He closed the ledger and met Cassian's gaze.
+Cassian's pulse quickened. Had he been that obvious?
 
-"Your town has two days left to decide. I hope they choose wisely. I hope they choose us. Because the alternative..." He gestured toward the road where refugees still huddled in their makeshift camp. "The alternative is to run. To flee from town to town, watching the Hollow spread while you pretend there's anywhere left to hide. Or you can stay and fight us. And we'll kill you. Not because we want to, but because you force us to defend what we've built."
+"Our master warned us about people like you," Valen continued. "People who think they can cheat the system. But you're making an error, Master Cassian. You assume there's a flaw to exploit. There isn't. Our contracts are fair. Perfectly fair. What people agree to binds them, fairly and completely."
 
-"What you've stolen."
+"Fair doesn't mean right."
 
-"What you've *traded* for." Valen stood, and suddenly his pleasant demeanor cracked just slightly. Beneath it, Cassian saw something cold and vast. "You're young. Inexperienced. You think you can save everyone with good intentions and moral outrage. But you're a child playing in an arena you don't comprehend. Our master has spent decades studying human nature—what people truly want, what they'll give up, how to make surrender look like salvation. He understands the mechanics of human desires better than anyone alive."
+"Doesn't it?" Valen leaned back. "Your town has two days left to make a decision about whether they accept us. I hope they choose wisely. I hope they choose us. Because the alternative..." He gestured toward the road where refugees still huddled in their makeshift camp. "The alternative is to run. Or fight. And both end the same way."
 
-He stepped around the desk, moving closer.
+Cassian felt the weight of failure settling over him. He'd tried to probe, to understand, to find some weakness in the Hollow's system. And he'd learned... what? That the contracts were binding mechanisms. That they connected to some central repository. That they were "perfectly fair."
 
-"I'm going to tell you something out of professional courtesy, ledger-keeper to ledger-keeper. When the Hollow comes to your town—and it will, whether you sign or not—you have three options. One: Sign. Become one of us. Stop hurting. Two: Run. Flee to the next town and wait for us to arrive there too. Three: Die fighting for a world that was broken long before we arrived to fix it."
+None of it was useful. None of it told him how to stop them.
 
-"There's a fourth option," Cassian said quietly.
+"Your father tried this too, you know," Valen said, almost gently. "Came to our master twenty years ago. Studied our methods. Thought he found leverage." The emissary's smile turned sad. "He hadn't. And neither have you."
 
-"Oh?"
+Cassian hesitated. "Why are you telling me this?" He asked.
 
-"Stop you."
+"Because I'm trying to help you." Valen pulled out a fresh contract. "You seem like a decent man. You care about people. You want to do the right thing. Those are good qualities. Admirable qualities. But they're going to get you killed or broken or hollowed. So I'm offering you mercy."
 
-Valen laughed. It was genuine, warm, almost fond. "With what? Your determination? Your moral certainty? Your father tried that, you know. He came to our master twenty years ago, convinced he could end the Hollow's spread. Convinced he had the power to unmake what we'd built." The emissary's smile turned sad. "He left broken. Went home to watch his family fall apart while he chased answers he'd never find. Is that the option you're choosing?"
+He held out the parchment. "Sign this. Join us. You'll keep your mind, your memories, your sense of self. You'll just stop feeling the pain of watching everything you love crumble. A fair exchange."
 
-The words hit like physical blows. His father had confronted them. Had tried to stop them. And failed so completely that it destroyed his life.
+Cassian looked at the contract. At Valen's earnest expression. At the empty shimmer where the emissary's humanity should have been.
 
-"Why are you telling me this?" Cassian managed.
+And he understood—not the solution, but the scope of the problem. The Hollow had built something that worked *within* the rules. Something that appeared fair and balanced and just. Fighting it with moral outrage was useless. Understanding the mechanism wasn't enough.
 
-"Because I'm trying to help you." Valen's voice was sincere. Painfully sincere. "You seem like a decent man. You care about people. You want to do the right thing. Those are good qualities. Admirable qualities. But they're going to get you killed or broken or hollowed. So I'm offering you mercy."
+He needed something else. Something deeper.
 
-He held out a piece of parchment. A contract.
-
-"Sign this. Join us. You'll keep your mind, your memories, your sense of self. You'll just stop feeling the pain of watching everything you love crumble. You'll stop caring that the world is cruel. And in return, you'll help us bring peace to others. Fair exchange."
-
-Cassian looked at the contract. At Valen's earnest expression. At the shimmer around the emissary that showed something fundamentally twisted where a human soul should be.
-
-And he understood.
-
-This was the Hollow's true weapon. Not force. Not fear. But *reasonableness*. They made damnation sound like salvation. Made emptiness look like peace. Made the destruction of everything human seem like the only logical choice.
-
-"No," Cassian said.
+"No," Cassian said, standing.
 
 Valen sighed. "Then you have two days to change your mind. I'll be here when you do."
 
@@ -212,9 +220,11 @@ He sat back down at his desk, pulled out a fresh contract, and began writing. As
 
 As if the conversation was already over.
 
-Cassian walked away, his heart pounding, his mind racing.
+Cassian walked away, his head throbbing, his mind racing. He'd tried to use his gift to probe the Hollow's methods. And he'd failed. Learned nothing useful. Nothing that would help him save Elara or anyone else.
 
-Two days to save Elara.
+The coin in his pocket had grown cold again, almost as though it was disappointed in him.
+
+One day to save Elara.
 
 Two days to save his town.
 
@@ -504,7 +514,7 @@ Though Seris's warning echoed in his mind: *Nothing you could carry would be suf
 
 What could be taken from him that he couldn't carry? The question haunted him as midnight approached.
 
-The thought made his stomach turn. Was this person—this Dealer—the same as the Hollow? Would he have to become hollow himself just to learn how to fight them?
+The thought made his stomach turn. Was this person the same as the Hollow? Would Cassian have to become hollow himself just to learn how to fight them?
 
 If the price was acceptable, he'd pay it. If it was too terrible to pay... he would have decide when he got there.
 

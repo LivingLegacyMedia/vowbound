@@ -504,12 +504,48 @@ The journey to the Citadel. The confrontation with Draven. And at the end of it 
 
 *One step at a time,* he told himself. *Understand the system. Find the weakness. Then break it.*
 
-But he couldn't shake the feeling that he'd already started down a path that ended in only one place. With him standing in the center of Draven's network, absorbing the weight of a million stolen lives, and hoping that his death would mean something.
+And then, like a spark in darkness, another thought struck him.
 
-The letter sat on its silver tray, beautiful and terrible, a promise and a threat wrapped in elegant calligraphy. And Cassian knew that eventually, he would walk through those gates. Would face the man who'd mastered what Cassian was only beginning to understand.
+"The other coin," Cassian said aloud.
 
-But not today. Today, he had work to do. Problems to solve. A system to comprehend before he could destroy it.
+The King and Mira looked at him.
 
-One trade at a time.
+"When I first arrived in Arvenstead, the coin grew warmer. Hotter than it had ever been. I told you there was another fragment somewhere in the capital." Cassian pulled his coin from his pocket, feeling its familiar heat. "It's still here. Still close. And if I'm going to face Draven—if I'm going to try to break his network—I need every advantage I can get."
 
-Until there was nothing left to give.
+"You think finding the other coin would give you that advantage?" the King asked.
+
+"The Dealer told me to find the others before Draven does. That it might be enough." Cassian closed his fist around the coin. "Draven has one coin. I have one. But if I can find this third coin before I go to the Citadel—if I can keep it out of his hands, or possibly even use it myself—that changes things."
+
+"You still wouldn't know how to use the other one," Mira pointed out. "The coins bond to their bearers. Even if you found it, it would be bonded to someone else."
+
+"Then I find that person. Convince them to help. Or at least keep them from giving it to Draven." Cassian felt the certainty growing in his chest. "Either way, I can't go to the Citadel empty-handed. Not when there's another weapon within reach."
+
+The King studied him for a long moment. "And if the person who carries this coin doesn't want to be found? If they've kept it hidden for good reason?"
+
+"Then I'll have to convince them that hiding won't work anymore. Draven is coming for it. He knows it's here—the same way I know it's here. The only question is whether he finds it first."
+
+Silence filled the chamber. Then the King nodded slowly.
+
+"How long would you need to search?"
+
+Cassian reached for the coin's perception, letting his awareness expand through the palace. The warmth pulsed stronger—not quite a direction, but an intensity. A sense of proximity.
+
+"It's close," he said. "Very close. Maybe even within the palace itself. If I can focus—if I can follow the heat—I might be able to track it down within days. Maybe less."
+
+"Then you have one week," the King said. "Find this coin before you go to meet Draven. But Master Cassian—" His voice hardened. "If you haven't found it by then, you go anyway. I won't have you postponing this confrontation indefinitely. Do you understand?"
+
+"One week," Cassian agreed. "That's all I need."
+
+He couldn't shake the feeling that he'd just committed to something impossible. Finding a coin that someone had hidden—possibly for decades—in a city of thousands? In seven days?
+
+But the alternative was walking into Draven's fortress with nothing but one coin and desperate hope.
+
+The letter sat on its silver tray, beautiful and terrible, a promise and a threat wrapped in elegant calligraphy. And Cassian knew that when he finally walked through those gates, he needed to be carrying more than just courage.
+
+He needed a weapon that even Draven couldn't anticipate.
+
+*Find the coin,* he thought. *Find it before he does. It's the only advantage I have left.*
+
+One coin at a time.
+
+Until he had enough to change the balance.
