@@ -236,19 +236,41 @@ Cassian took the spyglass, focused on the figure she'd indicated. A young man, m
 
 A voice spoke behind them, cold and flat. "You're making a mistake."
 
-Cassian spun, hand going to his knife.
+Cassian spun, hand going to his knife. His heart hammered as he dropped into a defensive crouch. How had someone gotten so close without them hearing?
 
 A cloaked figure stood ten paces away, perfectly still. A man, from the voice and build, but his face was hidden in shadow beneath his hood.
 
-"Coming here," the figure continued, "it was a trap."
+Mira had her blade drawn, backing toward Cassian. "How long have you been there?"
 
-"I know it's a trap," Cassian said. "But we have to try anyway."
+"Coming here," the figure continued, ignoring her question, "it was a trap."
 
-"Why?" The figure tilted his head, studying them with unnerving intensity. "One life against three thousand. One brother against the entire Hollow force in this region. The mathematics don't favor you."
+Cassian's mind raced. Trap. This stranger knew why they were here. Had been following them. For how long? Since Arvenstead? Since the inn at Thornrest? His free hand moved to the coin in his pocket, ready to use whatever desperate magic he could summon.
 
-"Mathematics isn't everything," Mira said coldly. "Who are you? Why have you been following us?"
+"Who are you?" Cassian demanded, keeping his voice steady despite the adrenaline flooding his system. "Show yourself. Now."
 
-The figure was silent for a long moment. Then, slowly, he reached up and pulled back his hood.
+"One of Draven's scouts," Mira hissed. "Has to be. Cassian, we need to—"
+
+"Run where?" Cassian cut her off, eyes never leaving the figure. If this was one of the Hollow, running might trigger a pursuit. And if there was one, there could be more. They were exposed on this ridge. Trapped. "Answer her question. Why have you been following us?"
+
+The figure remained motionless. Too still. That same unnatural calm Cassian had seen in the farmer at Thornrest. His grip tightened on his knife. Could he fight a Hollow? They didn't feel pain, didn't tire like normal people. And if this one called for reinforcements from the camp below...
+
+"I know it's a trap," Cassian said, forcing himself to sound confident. Buying time to think. "But we have to come anyway."
+
+"Why?" The figure tilted his head, studying them with unnerving intensity. "One life against three thousand. Two or three against the entire Hollow force in the region. The odds don't favor you."
+
+The certainty in that voice—the way he knew exactly why they were here—made Cassian's stomach drop. This was no random scout.
+
+"Odds aren't everything," Mira said, though her blade trembled slightly. "Who are you? Are you here to stop us?"
+
+Silence stretched between them. Cassian's muscles tensed, ready to fight or flee. The figure could attack at any moment. Could be stalling while others surrounded them. Every second felt like standing on a knife's edge.
+
+Then, slowly—the figure reached up toward his hood.
+
+Cassian tensed...the coin's warmth pulsed in his pocket, and he drew on that perception, trying to read the stranger. Trying to sense threat or intention.
+
+What he felt made his skin crawl. Emptiness. But beneath it, something struggling. Something wrong.
+
+The figure pulled back his hood.
 
 Cassian's breath caught.
 
