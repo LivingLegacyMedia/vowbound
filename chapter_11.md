@@ -1,4 +1,4 @@
-# Chapter 11: The Pact of Five Kings
+# Chapter 11: Stolen Power
 
 "Terms?" Draven's laugh echoed through the ruined aqueduct. "You're surrounded by my soldiers, your ally has already betrayed you, and you think you're in a position to negotiate terms?"
 
@@ -26,7 +26,7 @@ Draven's expression hardened. "Clever." He pulled out his golden locket, the cag
 
 "After that..." Draven shrugged. "The world is dangerous. Accidents happen. But you'll have time to run. To hide. To plan your futile resistance. I'm not unreasonable."
 
-The offer hung between them. The way Draven phrased it—"give me the coins"—was deliberately vague. He could mean possession...or he could mean actual ownership, a transfer of Cassian's bond with the coins. An ambuguity that Draven would doubtless use to his advantage. Cassian could feel Mira's eyes on him, could sense her desperate hope that he'd somehow find a way out of this. But there was no way out. Not really. Draven held all the advantages.
+The offer hung between them. The way Draven phrased it—"give me the coins"—was deliberately vague. He could mean possession...or he could mean actual ownership, a transfer of Cassian's bond with the coins. An ambiguity that Draven would doubtless use to his advantage. Cassian could feel Mira's eyes on him, could sense her desperate hope that he'd somehow find a way out of this. But there was no way out. Not really. Draven held all the advantages.
 
 Except one.
 
@@ -34,11 +34,11 @@ Cassian let his coin-sense extend, scanning the circle of Hollow surrounding the
 
 Korrin. The one who'd let them go before.
 
-Cassian closed his eyes, as if weighing the decision. "I need a moment to think."
+Cassian let his eyes drift shut, as if weighing the decision. "I need a moment to think."
 
 "By all means." Draven's voice dripped with false magnanimity.
 
-A few seconds passed. Cassian's eyes opened.
+A few seconds passed. Cassian looked up.
 
 "I've decided," Cassian said. "I accept your terms. Both coins for Torin's restoration and safe passage to the city limits."
 
@@ -70,31 +70,27 @@ The gray space had opened around Cassian—the Silent Market, the place between 
 
 The space was vast and empty. Not dark, not light. Just... neutral. And in the center, waiting as it always waited, was the presence he'd felt before. Not a person. Not even a consciousness, exactly. Just the Law itself, ready to enforce any exchange properly offered.
 
-Cassian spoke into the emptiness: "If I offer a trade that severs the Hollow from their network—the tethers binding them to Draven—what would I need to do?"
+His father's notes had mentioned this—the difference between bargaining through a coin and bargaining directly with the Law. How possession and bond were separate things. How one could be traded without the other, if the terms were precise enough.
 
-The answer came not in words, but in knowledge that simply appeared in his mind: The coin would need to make physical contact with one of the Hollow. The touch would trigger the severance, but the contact must be maintained for the process to complete. *Nine seconds of unbroken contact.*
+Cassian took a breath and spoke into the emptiness: "If I trade possession—just possession, not my bond with the coin—what could I get?"
 
-Nine seconds. Cassian's heart raced. Korrin had resisted Draven's commands for ten seconds before, back when he'd let them go. Nine seconds was shorter—it was possible. But Draven would be fighting for the coin the entire time.
+The answer came not in words, but in knowledge that simply appeared in his mind: Physical contact with one of the Hollow. Nine seconds of unbroken contact to sever them from the network.
 
-It was a gamble.
+Nine seconds. Korrin had resisted Draven's commands for ten seconds before. It was possible. Barely.
 
-"In that case, I offer a trade," Cassian said, his voice steadier than he felt.
-
-The presence listened.
-
-"I will give physical possession of the Coin of Heads—the physical medallion—to my greatest enemy. To someone who will use it to harm the innocent. Who will use it to further his plans for power." Cassian's voice was steady despite the weight of what he was offering. "In exchange, I demand the immediate and permanent severance of all Hollow present in this place from their network. The tethers binding them to Draven's will and debt storage must be cut completely. They must be freed. Restored to their humanity."
+"Then I offer a trade," Cassian said, his voice steadier than he felt. "I'll physically give the medallion to my greatest enemy and those who serve him. He desires to use it to harm others. He'll use it for his own power." The words came easier now, almost instinctive. "In exchange, sever these Hollow souls from their network. Cut the tethers. Restore them. Make them human again."
 
 The presence didn't respond with words. But Cassian felt the evaluation. Felt the Law weighing what he offered against what he demanded.
 
-The balance held. Barely. Giving a divine artifact to your greatest enemy while retaining the bond—that was a heavy cost. Freeing a hundred corrupted souls? That was an equivalent exchange.
+The balance trembled. Uncertain.
 
-But there was doubt. The scales trembled.
+"All of them," Cassian pressed. "A hundred souls restored. If that's too much, then as many as the balance will allow. But Korrin must be one of them. The soldier in the northern arc. He deserves this chance to live again."
 
-"If the sacrifice is not enough," Cassian said quickly, "then free at least half of them. As many as the balance will allow. But make sure—" His voice caught. "Make sure Korrin is one of them. The soldier in the northern arc. He needs to be freed."
+The Law considered.
 
-The Law considered. Then accepted. The trade locked into place, binding and absolute.
+Then accepted.
 
-The trade sealed itself. Unbreakable.
+The trade locked into place, binding and absolute.
 
 ---
 
@@ -150,9 +146,13 @@ The Coin of Oxen blazed with power. Draven's form seemed to swell, muscles rippl
 
 He moved. Not like a man—like a force of nature. Another attacker went flying. Then another. Bones broke. People screamed.
 
+Through the chaos, Mira saw her opportunity. The Coin of Seeds—Draven had dropped it when the first wave of restored Hollow attacked. It glinted in the torchlight, forgotten in the rubble. She darted forward, snatched it, and tucked it into her belt before anyone noticed.
+
 "Korrin!" Cassian shouted. "Get them out of here! You can't fight him like this!"
 
-Korrin, seeing his fellows broken and bleeding, made a quick tactical assessment. "Fall back! Everyone, fall back! We need weapons, strategy—" He looked at Cassian. "Go! We'll regroup, but you need to leave the city. He'll hunt you most of all."
+Korrin, seeing his fellows broken and bleeding, made a quick tactical assessment. He grabbed a support beam and wrenched it free—the ancient aqueduct groaned, and a section of stone archway collapsed between them and Draven. Rubble and dust filled the air.
+
+"Everyone, fall back!" Korrin shouted through the chaos. "We need weapons, strategy—" He looked at Cassian through the settling dust. "Go! We'll regroup, but you need to leave from here. He'll be after you most of all."
 
 Draven was already cutting through the restored people like they were nothing, moving toward Cassian with terrible purpose.
 
@@ -174,11 +174,11 @@ Cassian slumped against the wall, clutching the Coin of Heads. The bond hummed w
 
 "What did you do back there?" Mira asked. "I saw you throw the coin to Korrin, saw the Hollow collapse, saw him throw it back. But I don't understand how—"
 
-"In Silent Market," Cassian managed. "I made a trade."
+"I entered the Silent Market," Cassian managed. "Made a trade directly with the Law."
 
 "What did you trade?"
 
-"Physical possession of the coin to my greatest enemy. That was the price—giving it to someone who would use it against the innocent. In exchange, the Hollow were freed and restored to their humanity. All of them, or as many as the balance would allow." He touched the coin, feeling its warmth. "I kept the bond. But I gambled that Korrin would be freed, that the coin would complete the restoration in seven seconds, and that he'd throw it back before Draven could take it."
+"Possession of the coin." He laughed, but it came out shaky. "I wasn't even sure it would work. I gambled that giving the coin to Draven would be enough to free them. That Korrin would be restored in time. That he'd throw it back before Draven could take it."
 
 "That's..." Mira stared at him. "That's insane. So many things could have gone wrong."
 
@@ -206,13 +206,9 @@ Cassian took the paper, unfolded it. Saw his father's handwriting, careful and d
 
 "You took this from my room? When?"
 
-"When you were bonding with the second coin. You were unconscious for hours." Mira's voice was quiet. "I didn't know what Draven would demand. Didn't know I'd end up betraying you. But I kept thinking—if things went wrong, we'd need resources. Allies. So I took it. Just in case."
+"When you were bonding with the second coin. You were unconscious for hours." Mira pulled out a folded paper from inside her coat. "Your father's list. I grabbed this too—from your room. Contacts. People who owe him debts. There's a guild safe house three miles north—someone named Seris. That's our best option."
 
-"Just in case you needed insurance against both of us?"
-
-"Just in case we both survived and needed help." She met his eyes. "I know you don't trust me. I don't blame you. But right now, this list is all we have."
-
-Cassian studied the names, the careful notes. His father had known this day might come. Had built a network not just for himself, but for whoever came after.
+Cassian took the paper and pocketed it without looking. He'd read it later. Right now, survival mattered more than studying names.
 
 "Come on," Mira said. "We need to move before Draven finishes with the others and comes hunting."
 
@@ -232,7 +228,7 @@ They continued walking. The meadows were behind them now, and they moved toward 
 
 ---
 
-The forest welcomed them with early morning birdsong and dappled sunlight filtering through the canopy. Cassian had walked this path before—had ran through these woods earlier that day ago when leaving the capital. But something was different now.
+The forest welcomed them with early morning birdsong and dappled sunlight filtering through the canopy. Cassian had walked this path before—had run through these woods just hours earlier when fleeing the capital. But something was different now.
 
 The trees felt *closer*. Not threatening, but present. Aware.
 
@@ -274,7 +270,7 @@ The connection was immediate. He could *feel* the sapling's struggle—roots pus
 
 This seedling would likely die before it reached maturity.
 
-Cassian closed his eyes. Felt the Coin of Seeds pulse in his right hand, the Coin of Heads sharp in his left. Two different energies. Two different domains.
+Cassian's breath slowed. He felt the Coin of Seeds thrumming in his right hand, the Coin of Heads sharp and precise in his left. Two different energies. Two different domains.
 
 What if...?
 
@@ -282,9 +278,9 @@ He focused on the seedling. Imagined its growth accelerating. Not just faster, b
 
 Seeds and Heads. Growth and Understanding.
 
-The coins grew warm in his palms.
+Heat bloomed in his palms—the coins responding.
 
-When Cassian opened his eyes, the seedling had doubled in height. New leaves were unfurling, stem thickening. And in his mind, he *understood* what had happened. He'd traded something—a tiny fraction of his own energy, perhaps—to accelerate the plant's growth. And simultaneously used his original coin to guide that growth intelligently.
+When Cassian's eyes snapped open, the seedling had doubled in height. New leaves were unfurling, stem thickening. And in his mind, he *understood* what had happened. He'd traded something—a tiny fraction of his own energy, perhaps—to accelerate the plant's growth. And simultaneously used his original coin to guide that growth intelligently.
 
 It wasn't a bargain in the traditional sense. No gray space. No negotiation with Law itself.
 
@@ -316,7 +312,7 @@ His father had theorized about this. Had wondered what combining coins might do.
 
 And now Cassian was living the experiment.
 
-He closed his eyes again, feeling both coins pulse in rhythm with his heartbeat. The Coin of Heads sharpening his thoughts, making connections faster. The Coin of Seeds humming with patient, relentless vitality.
+He sat back against the tree, both coins still in his hands, feeling their rhythms synchronize with his heartbeat. The Coin of Heads sharpening his thoughts, making connections faster. The Coin of Seeds humming with patient, relentless vitality.
 
 Together, they were more than the sum of their parts.
 
@@ -342,4 +338,4 @@ Not because he was stronger.
 
 But because he was becoming something no one had seen before.
 
-Something even the ancient forgers of the coins themselves might not have anticipated.
+Something even the coins themselves might not have anticipated.
