@@ -24,17 +24,19 @@ But knowing it intellectually and seeing the hope drain from Mira's face were tw
 
 "Why?" Mira's voice broke. "Why couldn't you have freed him? You freed a hundred people—why not him?"
 
-"Because I severed his tether weeks ago," Cassian said quietly. "When I pulled him out of the network in that tent. He wasn't bound anymore. Wasn't part of the Hollow like the others."
+"Because I severed his tether days ago," Cassian said quietly. "When I pulled him out of the network in that tent. He wasn't bound anymore. Wasn't part of the Hollow like the others."
 
 "So your first rescue damned him?" Mira's voice rose, sharp with anger and grief. "If you'd just left him alone, left him hollow and suffering for a few more weeks, he would have been freed with the others? He'd be whole right now?"
 
 The words hit like a physical blow. Cassian had saved Torin early—partially, incompletely—and that act of mercy had excluded him from the complete restoration later. If he'd done nothing, waited, let Torin suffer in the network just a little longer...
 
-"Perhaps," Cassian admitted. The truth was too stark to soften. "If I'd left him hollow, he might have been freed with the others."
+But he caught himself. The logic was tempting but incomplete.
 
-Mira stared at him. Then she laughed—a broken, desperate sound. "So my brother is uniquely damned. Not hollow enough to be freed. Not whole enough to be human. Trapped in some middle state because you—" She stopped, breathing hard. "Because we both tried to save him too soon."
+"Maybe," Cassian said slowly. "But it was only because we rescued him that Draven was able to send you that message—it's why you stole the coin—and it's why I was able to free the hundred. If we'd left him hollow, perhaps none of that would have happened." He met her eyes. "I don't know what would have happened, Mira. I only know what did happen. What did happen is that I tried to save your brother, and it wasn't enough."
 
-"I can fix this," Cassian said. But even as he spoke, he wasn't sure it was true.
+Mira stared at him. Then she laughed—a broken, desperate sound. "So my brother is damned. Not hollow enough to be freed. Not whole enough to be human. Trapped in some middle state because you—" She stopped, breathing hard. "Because we both tried to save him too soon."
+
+"I can still try to help him," Cassian said. But even as he spoke, he wasn't sure how much he could really do.
 
 Mira whirled on him. "Can you? Because it seems like every time you 'fix' something, you break it in new ways. You pulled him from the network—great. Now he's stuck. You freed a hundred Hollow—wonderful. But not him. So what's your next brilliant solution? Wait another few months and hope a third option presents itself?"
 
@@ -56,13 +58,9 @@ The words hung in the air like smoke. Harsh. True. Painful.
 
 Mira sank into her chair, covering her face. "You're right," she whispered. "You're absolutely right. I have no right to blame you. No right to be angry at you when you've done nothing but try to help." She looked up, tears streaming. "But I don't know who else to be angry at. Draven's not here. And my brother can't even understand why I'm upset. So I'm lashing out at you because you're the only target I have."
 
-"That's not fair to me," Cassian said, his voice still hard.
+"That's not fair to me," Cassian said.
 
 "I know," Mira said. "Nothing about this is fair. Not to you. Not to Torin. Not to anyone." She wiped her face roughly. "I'm sorry. Again. I know it doesn't mean much, but I'm sorry."
-
-Sister Petra appeared in the doorway, alarmed. "Miss Mira..."
-
-"Get out," Mira snapped. The healer retreated quickly.
 
 Torin watched the exchange with his characteristic flatness, head tilted like he was observing an interesting experiment rather than his sister's breakdown.
 
@@ -72,7 +70,7 @@ Torin watched the exchange with his characteristic flatness, head tilted like he
 
 "That sounds backward."
 
-Mira made a sound between a laugh and a sob. "Backward. He thinks love is *backward*." She sank into a chair, covering her face. "This is what I traded everything for. This hollow shell who can't even understand why I'm crying."
+Mira made a sound between a laugh and a sob. "Backward. He thinks love is *backward*." She looked at her brother, tears streaming. "This is what I traded everything for. This hollow shell who can't even understand why I'm crying."
 
 "I'm not hollow," Torin said mildly. "Cassian said so. I'm 'incomplete.' Different from the others."
 
@@ -80,11 +78,25 @@ Mira made a sound between a laugh and a sob. "Backward. He thinks love is *backw
 
 Cassian knelt before Torin, both coins warming in his pockets. He let his perception expand, examining what remained of the young man's humanity with both fragments of divine power.
 
-The Coin of Heads showed him the damage: neural pathways severed, emotional connections disrupted, memories stored but inaccessible. Like a library where all the books existed but the index had been destroyed. Everything was there—just scattered, isolated, unable to integrate.
+The Coin of Heads showed him the damage: neural pathways severed, emotional connections disrupted, memories stored but inaccessible. Like a library where all the books existed but the index had been destroyed. Everything was there—just scattered, isolated, unable to integrate. He could see Torin's memories of his sister—dozens of them, bright and vivid—but they floated independently, disconnected from the emotional context that would make them meaningful. Torin remembered *events* with Mira, but not the *feeling* of having a sister.
 
-The Coin of Seeds showed him something else: potential. Raw, unformed potential. The capacity for growth, for reconnection, for rebuilding what had been lost. Not through restoration—that ship had sailed when Cassian severed the original tether. But through cultivation. Patient, deliberate growth of new pathways, new connections, new ways of being human.
+The Coin of Seeds showed him something else: potential. Raw, unformed potential. Like a burned forest where new shoots were already trying to push through ash. The capacity for growth, for reconnection, for rebuilding what had been lost. Not through restoration—that ship had sailed when Cassian severed the original tether. But through cultivation. Patient, deliberate growth of new pathways, new connections, new ways of being human.
 
-It would take months. Maybe years. And there was no guarantee it would work.
+Cassian reached out carefully with the Coin of Seeds, feeding the barest thread of energy into one of those nascent connections—a pathway between memory and emotion, trying to link what Torin remembered about Mira to how he should *feel* about her.
+
+For a moment, something flickered in Torin's eyes. Recognition. Not just of his sister's face, but of what she *meant*.
+
+Then it faded, the connection too fragile to sustain itself without constant reinforcement.
+
+Mira gasped softly. "Did you see that? His eyes—they changed for a second—"
+
+"I saw it," Cassian said quietly. He pulled back, the energy dissipating. "It's proof the work can succeed. The connections can be rebuilt. It just takes time."
+
+Torin blinked slowly, looking confused. "Something felt... different. I don't know what."
+
+"That's good," Cassian told him. "That's the beginning."
+
+It would take months. Maybe years. Hundreds of sessions like this, patiently nurturing one connection at a time until enough existed to create something resembling wholeness. And there was no guarantee it would work.
 
 But it was the only option left.
 
@@ -122,23 +134,27 @@ Torin patted her shoulder awkwardly, mechanically. "You're crying again. Is this
 
 "Yes," Mira sobbed. "It's still about love."
 
-Cassian stood, giving them space. He'd offered what he could—time, effort, patient cultivation of something that might never fully bloom. Whether it would be enough, he didn't know.
+Cassian stood, giving them space. He'd offered what he could—time, effort, patient cultivation of something that might never fully bloom. 
 
-But it was more than Torin had yesterday. And maybe that was all any of them could hope for.
+He stepped into the hallway, letting the door close softly behind him. For a moment he just stood there, exhaustion settling into his bones. The confrontation with Mira. The weight of Torin's condition. The impossible task of rebuilding a broken mind, slowly, step by step.
+
+*One problem at a time,* he thought, leaning against the wall. *First Torin. Then everything else.*
+
+He'd barely caught his breath when a royal guard appeared at the end of the corridor, armor gleaming in the afternoon light. "Master Cassian. The King requests your presence. In the Great Hall."
+
+The Great Hall. Not the private study.
+
+That meant ceremony. Politics. Theater.
+
+Cassian closed his eyes briefly, gathering himself. Then nodded. "Lead the way."
 
 ---
 
-King Aldric summoned him that evening, but not to the private study.
+When the massive oak doors swung open, Cassian understood why.
 
-To the Great Hall.
+The hall was packed. Nobles, merchants, military commanders, foreign dignitaries—hundreds of people crammed into the space, all turning to watch as he entered.
 
-Cassian walked through the palace corridors with growing confusion, following a royal guard who wouldn't explain why the audience was so formal. When the massive oak doors swung open, he understood.
-
-The hall was packed. Nobles, merchants, military commanders, foreign dignitaries—hundreds of people crammed into the space, all turning to watch as Cassian entered.
-
-King Aldric stood on the dais, wearing his full ceremonial regalia. Beside him stood four other figures in royal dress—the rulers of the other kingdoms in the nascent Covenant.
-
-*Oh no,* Cassian thought. *This is a ceremony.*
+King Aldric stood on the dais in full ceremonial regalia. Beside him stood four other figures in royal dress—the rulers of the other kingdoms in the nascent Covenant.
 
 "Master Cassian Erevan," the King's voice boomed across the hall. "Approach."
 
@@ -165,7 +181,19 @@ But he was also smart enough not to hand them ammunition against himself.
 
 "How?" someone called from the crowd. "What method?"
 
-"The specifics are... complex," Cassian said, which was true. "And dangerous if misunderstood or misapplied. What matters is that the process can be reversed. That Draven's network has weaknesses. That those he claims are lost forever can be saved."
+"The specifics are... complex," Cassian said carefully, which was true. "And dangerous if misunderstood or misapplied. What matters is that the process can be reversed. That Draven's network has weaknesses. That those he claims are lost forever can be saved."
+
+"You gave something up, didn't you?" another voice called—one of the merchants. "Made some kind of deal with the Devil?"
+
+Cassian almost smiled at how close that was to the truth. "The details of what I traded are personal. What I can tell you is that it was costly, and it worked."
+
+A woman near the front—someone who'd lost family to the Hollow, judging by her expression—spoke up. "Will they stay free? Or will Draven be able to reclaim them?"
+
+That was the real question. The one that kept Cassian awake at night.
+
+"I severed their connections to his network," Cassian said honestly. "Those specific bonds are broken. But could Draven convert them again if they signed another contract with one of his emissaries? If they fell for the same lies a second time? Yes. Which is why we need to protect them. Educate them. Make sure they understand what they escaped."
+
+The woman nodded slowly, seeming satisfied with that answer.
 
 "But can you teach this method?" That was a noble Cassian didn't recognize. "Can others learn to do what you've done?"
 
@@ -185,180 +213,128 @@ Cassian met his gaze steadily. "Not the same way. Draven will have adapted his d
 
 The General's face darkened, but he couldn't argue with the logic.
 
-"For the first time, Cassian has proven the process can be reversed," King Aldric interjected smoothly. "So there is hope for those who've lost loved ones. He demonstrated that Draven's network has weaknesses we can exploit." He gestured to the other monarchs. "Which is why we're formalizing the Covenant today. Five kingdoms, united in purpose, coordinating our defenses and resources against the Hollow's advance."
+"For the first time," King Aldric continued, "we have proof the process can be reversed. That Draven's network has weaknesses. That those we thought lost can be saved." He gestured to the other monarchs. "Which is why we formalize the Covenant today. Five kingdoms, united against the Hollow's advance."
 
-The four other rulers stepped forward. Cassian recognized them from the intelligence briefings: Queen Mirelle of Rothaven, Emperor Kast of the Eastern Reaches, High Chieftain Vara of the Northern Clans, and Lord Regent Thane of the Southern Territories.
+The four other rulers stepped forward—Queen Mirelle of Rothaven, Emperor Kast of the Eastern Reaches, High Chieftain Vara of the Northern Clans, and Lord Regent Thane of the Southern Territories. Each spoke briefly of pledged resources, open borders, coordinated intelligence.
 
-"We pledge our forces," Queen Mirelle said, her voice carrying across the hall. "Not in armies—for armies cannot win this war—but in intelligence, resources, and unified resistance."
+Cassian barely heard them. He was watching the crowd. Some faces showed hope. Others skepticism. And a few—like the King's General—showed barely concealed hostility.
 
-"We pledge our borders open to refugees and those fleeing conversion," Emperor Kast added. "And our networks to tracking Hollow movements."
+"And we pledge our support to you, Master Cassian," King Aldric said, recapturing his attention. "As the Covenant's official agent. You will have authority to move freely across all five kingdoms, to requisition resources, to act in our names when hunting those who spread the Hollow's corruption."
 
-"We pledge our fortresses as sanctuaries," Vara rumbled. "Places where Draven's preachers cannot reach."
+They were giving him power—and responsibility. The burden of five kingdoms' hopes resting on his ability to do the impossible again and again.
 
-Lord Regent Thane said nothing, but nodded with what looked like reluctant agreement.
-
-King Aldric turned back to Cassian. "And we pledge our support to you, Master Cassian. As the Covenant's official agent in this war. You will have authority to move freely across all five kingdoms, to requisition resources, to act in our names when hunting those who spread the Hollow's corruption."
-
-Cassian felt the weight of it settling on his shoulders like iron chains. They were giving him power—real, political power—but also responsibility. Expectations. The burden of five kingdoms' hopes resting on his ability to do the impossible again and again.
-
-"I accept," he heard himself say. Because what else could he do? Refuse? Let them face Draven without him?
+"I accept," Cassian said.
 
 "Then kneel," the King commanded.
 
-Cassian knelt.
+Cassian knelt. A ceremonial sword touched his shoulders. Words were spoken—titles, pledges, expectations. The crowd applauded. Some genuine. Some resentful that a commoner was being elevated above nobles who'd trained their whole lives for such recognition.
 
-King Aldric drew a ceremonial sword—ancient, ornate, probably never used in actual combat. He placed it on Cassian's right shoulder, then his left.
-
-"By the authority of the Covenant of Five Crowns, I name you Champion of the Realm. May your trades be fair. May your victories be lasting. May you stand against the darkness until the last Hollow falls or you do."
-
-The crowd erupted in applause. Some genuine. Some perfunctory. Some clearly resentful that a commoner—a *ledger-keeper*—was being elevated above nobles who'd trained their whole lives for recognition.
-
-Cassian stood, and the weight of their expectations felt heavier than any ceremonial title.
+When Cassian stood, the weight of their expectations felt heavier than any ceremonial blade.
 
 ---
 
-The celebration lasted hours.
+Hours later, Cassian escaped to a balcony overlooking the city. Below, the celebration continued—music, laughter, wine flowing freely. Inside, commanders were still trying to corner him with questions about strategy and next steps.
 
-Cassian endured it with gritted teeth, accepting congratulations from people who'd called him a fraud days earlier, fielding questions from commanders who wanted to know his "strategy" for the next liberation.
+Mira found him there, nursing a cup of wine.
 
-When he finally escaped to a balcony overlooking the city, he found Mira already there, nursing a cup of wine.
+"Champion of the Realm," she said without looking at him. "Very dramatic."
 
-"War hero," she said without looking at him. "How's it feel?"
+"It's theater," Cassian said. "Politics. They need a symbol."
 
-"Exhausting."
+"And you're it." She took a long drink. "Do they know you can't repeat what you did? That your brilliant strategy was a desperate gamble?"
 
-"They're calling you the Champion of Balance. The Hollow's Bane. The Liberator." She took a long drink. "Very dramatic titles for someone who freed one hundred people while leaving thousands more in chains."
+"No. And I'm not going to tell them." Cassian leaned against the railing. "They need hope right now. I'll give them that. And find another way to actually win."
+
+Mira finally looked at him. Her eyes were still red from crying, but something had shifted. Not forgiveness—she wasn't there yet. But perhaps acceptance. The grief compartmentalized enough to think strategically again.
+
+"I'm sorry," she said. "For earlier. For blaming you when you've done nothing but try to help."
 
 "I know."
 
-"And they have no idea you can't do it again. That your brilliant strategy was a desperate gamble that barely worked."
+"And I meant what I said. About not betraying you again. About wanting to help."
 
-"I know," Cassian said again.
+He watched her face, trying to gauge sincerity versus desperation. "Help how?"
 
-Mira finally looked at him. "Are you going to tell them? That you're out of tricks? That the next time you face Draven, you'll be improvising?"
+"Hunt them." Mira met his eyes. "Draven's emissaries. They spread through cities, offering trades to desperate people. What if we intercept them? Find the emissaries before they can convert more victims."
 
-"Would it help if I did?"
+"We can't repeat the mass liberation," Cassian said slowly. "But we could prevent new conversions. Cut off his recruitment at the source."
 
-"No," she admitted. "They need hope more than truth right now. And you're the only hope they have."
+"Exactly. Shift tactics. Become surgical instead of dramatic. Hunt his agents one by one, city by city."
 
-They stood in silence, watching the city celebrate below. Lanterns flickered in windows. Music drifted from taverns. People laughed and drank and pretended the Hollow wasn't still out there, still growing, still converting.
+Cassian felt the pieces clicking together—the Covenant's authority giving him freedom to travel, the two coins letting him sense Draven's agents, and Mira's tactical mind helping plan operations.
 
-"I meant what I said earlier," Mira said quietly. "About being done with patience. With understanding." She set down her cup, turned to face him fully. "But I also meant what I said about helping Torin. About not betraying you again."
+"I can't be everywhere at once," Cassian said. "Draven has agents in dozens of cities."
 
-"Which one should I believe?"
+"That's why you need help." Mira leaned forward. "Train people to act in your name. Teach me—teach others—how to recognize Draven's agents, how to counter their methods, how to offer desperate people better alternatives. You understand how desperation works. That knowledge doesn't require your coins. It just requires your insight."
 
-"Both." Her eyes were hard. "I'm angry. I'm bitter. I hate that you couldn't save him completely. But I also know..." She swallowed. "I also know you tried. You risked everything. And even though it didn't help Torin, it helped a hundred others who deserved freedom just as much as he does."
+He considered this, turning it over in his mind. "What you're describing is essentially creating our own network. Emissaries who can identify vulnerable people before Draven's agents reach them. Who understand the psychology of desperation well enough to offer genuine hope instead of false promises."
 
-"So you forgive me for not prioritizing your brother?"
+"Exactly. Draven's preachers work because they understand what people need to hear when they're desperate. They offer easy solutions to impossible problems. But what if we reach those people first? Offer them real help instead of contracts?"
 
-"No," Mira said flatly. "I'll probably resent that choice for the rest of my life. But I understand it. And I'll work with you anyway, because you're the only person who *can* help him now." She paused. "On one condition."
+"It would take time," Cassian said slowly. "Training people to recognize manipulation without becoming manipulators themselves. Teaching them to see desperation without exploiting it. That's a narrow line to walk."
 
-"Which is?"
+"But it's the only way to scale," Mira pressed. "You can't be in every city personally. But if you had ten people who understood your methods? Twenty? Spread across the Covenant? You'd be cutting off Draven's recruitment while he's still trying to figure out how you freed those hundred Hollow."
 
-"I help you hunt them." Mira met his eyes. "Draven's emissaries. I'm good at reading people, finding patterns. And I owe you. Let me be useful."
+Cassian felt the pieces coming together. It was brilliant—and dangerous. Creating a counter-network to fight Draven's network. People who understood the same psychological principles but used them to offer genuine alternatives instead of enslaving desperate souls.
 
-Cassian considered it. Mira was brilliant, determined, and motivated—but also someone who'd already betrayed him once. Trusting her with even basic involvement felt dangerous.
+"You want to be the first," he said.
 
-"You want to help me," he said slowly, "or you want me to teach you enough that you can help Torin yourself?"
+"I want to help Torin. And I want to make up for what I did." Mira's voice was fierce. "Let me be useful. Let me earn back some fraction of trust by actually helping."
 
-Mira had the grace to look uncomfortable. "Both, if I'm honest. But mostly the first. Because you're right—I can't keep relying on you for everything. And if I'm going to make up for what I did, I need to actually be useful, not just apologetic."
+"While also learning enough to eventually help Torin yourself."
 
-It wasn't a perfect answer. But it was honest. And honesty from Mira was rare enough to be valuable.
+"Yes," Mira admitted. "Learning what you know can help me with both."
 
-"We'll see," Cassian said noncommittally. "Start by helping me figure out how to free more Hollow without walking into the same trap twice."
+Cassian was quiet for a long moment. Then: "You'll start small. Here in Arvenstead. Learning to identify vulnerable people, offering them hope before Draven's agents reach them. You don't hunt preachers until I'm confident you won't become one yourself."
 
-Mira's expression sharpened, became calculating. "Draven's Hollow spread through cities, right? Emissaries in every major settlement, offering trades to desperate people. What if we intercept them? Find the emissaries before they can convert more victims. Free them or stop them or—"
+"Fair."
 
-"Hunt them," Cassian finished, understanding dawning. "We can't repeat the mass liberation. But we can prevent new conversions. Cut off Draven's recruitment at the source."
+"And if you use what I teach to exploit people—if I see even a hint of manipulation—"
 
-"Exactly. He's expecting you to try the same trick again. To infiltrate camps, make grand gestures, free hundreds at once. But what if you shift tactics? Become surgical instead of dramatic. Hunt his agents one by one, city by city, until he has no one left to spread his network."
+"You'll destroy me," Mira finished. "And I'd deserve it."
 
-It was brilliant. Cassian felt the pieces clicking together in his mind—the Covenant's authority giving him freedom to travel, the two coins letting him sense and counter Draven's agents, and Mira's tactical mind helping him plan operations.
+Cassian held out his hand. "Then we have a deal."
 
-"It'll be slow," Cassian said. "Could take years to make a real impact. And I can't be everywhere at once. Draven has agents in dozens of cities."
+Mira shook it. "Thank you."
 
-"That's why you need help." Mira leaned forward, intensity in her eyes. "You can't hunt every emissary personally. But if you teach me—teach others—how to recognize them, how to counter their methods, how to offer desperate people better alternatives before Draven's agents reach them..." She paused. "You said it yourself: the principles work without the artifacts. Train people who can act in your name across the Covenant. Emissaries who understand what you understand. Not with your power, but with your knowledge."
+"Don't thank me yet. This work changes you. Watching desperate people make terrible choices every day... it'll make you cynical. Make you wonder if anyone can be saved."
 
-Cassian studied her. It made sense. Terrifying sense. He'd be creating a network of his own—people equipped to fight Draven's conversion tactics city by city. But it would also mean trusting others with dangerous knowledge. Teaching them to recognize value, understand desperation, offer trades that could just as easily be corrupted as used for good.
+"Then we'll remind each other," Mira said quietly. "When you doubt, I'll remind you that you freed a hundred people. When I doubt, you'll remind me that my brother is still worth fighting for."
 
-"And you want to be the first," he said.
-
-"I want to help Torin, yes. But I also want to make up for what I did." Mira's voice was fierce. "I betrayed you. Stole from you. Used you. The only way I can earn back even a fraction of trust is by becoming useful. By freeing Hollow in your name. By stopping conversions you can't reach yourself." She met his eyes. "Let me help carry this burden. Not because I deserve it. Because you need help, and I'm willing to work for it."
-
-"While also hoping I'll teach you enough to eventually help Torin yourself," Cassian said, not unkindly.
-
-"Yes," Mira admitted. "Both things can be true. I want to atone, and I want to help my brother. Those motivations don't contradict each other."
-
-Cassian was quiet for a long moment. Then: "Alright. But understand—this isn't just observation. If you're going to counter Draven's agents, you'll need to understand desperation. How to recognize it. How to offer better trades without exploiting the desperate the way Draven does. That knowledge is dangerous. It could easily corrupt someone who uses it selfishly."
-
-"I understand," Mira said.
-
-"And you'll start small. Helping me here in Arvenstead. Learning to identify vulnerable people before Draven's agents reach them. Offering them hope, resources, alternatives. You don't hunt preachers until I'm confident you won't become one yourself."
-
-Mira nodded slowly. "Fair."
-
-"And if you use what I teach to manipulate people—if I see even a hint that you're exploiting desperation for your own ends—"
-
-"You'll destroy me," Mira finished. "And I would deserve it."
-
-Cassian held out his hand. "Then we have a deal. You work for me. You learn from me. And eventually, if you prove trustworthy, you become one of the emissaries who fights this war in cities I can't reach."
-
-Mira shook his hand. "Thank you. For giving me a chance to make this right."
-
-"Don't thank me yet," Cassian said. "This work is going to be harder than you think. And watching desperate people make terrible choices every day... it changes you. Makes you cynical. Makes you wonder if anyone can be saved."
-
-"Then we'll remind each other why we're doing this," Mira said quietly. "When you start to doubt, I'll remind you that you freed a hundred people. When I start to doubt, you'll remind me that my brother is worth fighting for."
-
-Despite everything, Cassian smiled. "Deal."
+Despite everything, Cassian found himself smiling slightly. "Deal."
 
 ---
 
-That night, Cassian stood alone in his quarters, both coins in his hands, and felt the enormity of what he'd taken on.
+Later that night, Cassian stood alone in his quarters, both coins warming his palms.
 
-Champion of the Covenant. War hero. The one person five kingdoms believed could turn the tide against the Hollow.
+Champion of the Covenant. War hero. The one person five kingdoms believed could turn the tide.
 
-And all he had was two coins, a broken man to heal, a betrayer to train, and no idea how to actually win the war everyone expected him to win.
+And all he had was two relics, a broken man to heal, a betrayer to train, and no clear path to victory.
 
-*This is what Father passed to me,* he thought. *Not just power. The weight of impossible expectations. The burden of being the only hope when hope itself feels like a lie.*
+*This is what Father passed to me,* he thought. *Not just power. The weight of impossible expectations.*
 
-But he'd accepted it. Knelt before five kings and taken the title. And now he had to figure out how to deserve it.
+But he'd accepted it. Knelt before five kings. And now he had to figure out how to deserve the title.
 
-The Coin of Heads pulsed warm in his left hand—showing him the value of things, the patterns of exchange, the hidden truths people tried to bury.
+The coins pulsed in his hands—one showing him value and exchange, the other showing him growth and potential. Together, they revealed a path forward. Not through grand gestures, but through persistent, methodical work. Hunting preachers. Healing broken people. Building resistance one small act at a time.
 
-The Coin of Seeds pulsed warm in his right—showing him potential, growth, the patient cultivation of what could be.
+It wasn't heroic. But it was honest. And it might actually work.
 
-Together, they showed him something new: a path forward. Not through grand gestures or dramatic victories, but through persistent, methodical work. Hunting preachers. Healing broken people. Building a resistance one small act at a time.
+Tomorrow, he'd start teaching Torin to rebuild himself from fragments.
 
-It wasn't heroic. Wasn't inspiring. Wasn't the kind of story that would be told in legends.
+The day after, he'd start teaching Mira to recognize desperation before it could be exploited.
 
-But it was honest. And it might actually work.
-
-Cassian looked out his window at the celebrating city below. They thought he was their savior. Their champion. The hero who would end the war with brilliant trades and impossible victories.
-
-They were wrong.
-
-He was just a man with a couple relics and too many promises, trying to figure out how to keep them all without losing himself in the process.
-
-But he'd try anyway.
-
-Because someone had to. And for better or worse, that someone was him.
-
-*One hollow at a time,* he thought. *One broken person at a time. One small victory at a time.*
+And every day after that, he'd hunt. City by city. One victim at a time.
 
 *Until either Draven falls or I do.*
 
-The coins pulsed in agreement.
+Cassian set down the coins, their warmth fading from his palms. 
 
-And Cassian turned from the window, ready to begin the patient, unglamorous work of actually winning a war that everyone else thought was already won.
+Tomorrow, the real work began. Not the dramatic gestures that earned titles and applause, but the patient, invisible labor of rebuilding what Draven had broken—one mind, one city, one desperate soul at a time.
 
-Tomorrow, he'd start teaching Torin to grow new connections. To rebuild himself from fragments.
+He closed his eyes and felt the weight of the Covenant's expectations settle around him like a cloak.
 
-The day after, he'd start teaching Mira to see what he saw. To understand the patterns that governed their world.
+He'd earned his title through one desperate gamble.
 
-And every day after that, he'd hunt. City by city. Preacher by preacher. Victim by victim.
+Now he had to prove he deserved it.
 
-Slow. Patient. Persistent.
-
-It was all he had.
-
-And it would have to be enough.
+And somewhere out there, in a city he couldn't see, Draven was already planning his next move.
