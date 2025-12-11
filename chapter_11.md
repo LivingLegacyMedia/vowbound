@@ -80,6 +80,10 @@ Nine seconds. Korrin had resisted Draven's commands for ten seconds before. It w
 
 "Then I offer a trade," Cassian said, his voice steadier than he felt. "I'll physically give the medallion to my greatest enemy and those who serve him. He desires to use it to harm others. He'll use it for his own power." The words came easier now, almost instinctive. "In exchange, sever these Hollow souls from their network. Cut the tethers. Restore them. Make them human again."
 
+A flicker of thought—should he mention Torin? Mira's brother, miles away in the palace, already disconnected but still broken. But the words wouldn't come. These Hollow here, surrounding him, were the immediate need. The ones still trapped. The ones he could see suffering. Torin was already free, wasn't he? Partially. It would have to be enough.
+
+The moment passed. The trade was spoken.
+
 The presence didn't respond with words. But Cassian felt the evaluation. Felt the Law weighing what he offered against what he demanded.
 
 The balance trembled. Uncertain.
@@ -222,7 +226,11 @@ They left through the back of the cabin, into the meadow grass that whispered in
 
 "What do you want me to say?" Cassian stopped, met her eyes. "That I forgive you? I don't. Not yet. Maybe not ever. But I understand why you did it. And I need you alive if we're going to stop Draven. So we work together. Maybe someday I'll forgive you. Or maybe I won't. But right now, survival matters more than feelings."
 
-Mira nodded slowly. "Okay."
+Mira nodded slowly. "Okay." She was quiet for a moment, then: "When you made your trade—when you freed them all—was Torin..." She trailed off, as if afraid to finish the question.
+
+Cassian's jaw tightened. "I don't know. I asked the Law to restore 'these Hollow'—the ones who were there. Torin wasn't there. He was already disconnected from the network, weeks ago. Whether the severance reached him..." He shook his head. "We'll find out when we get back."
+
+The hope in Mira's eyes dimmed slightly, but she nodded. Neither of them spoke of it again as they walked.
 
 They continued walking. The meadows were behind them now, and they moved toward the cover of the forest that bordered the eastern road. Better to stay hidden, at least until they put more distance between them and Draven.
 
