@@ -480,6 +480,6 @@ Nine.
 
 Eight.
 
-Cassian pulled his coin from his pocket and held it up in the torchlight.
+Cassian pulled his coin from his pocket and held it up in the sunlight.
 
 "All right," he said quietly. "Let's talk about terms."
