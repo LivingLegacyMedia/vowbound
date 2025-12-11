@@ -255,47 +255,61 @@ They stood in silence, watching the city celebrate below. Lanterns flickered in 
 
 "Which is?"
 
-"You teach me." Mira met his eyes. "How to use those coins. How to sense what you sense. You have two now—surely you can spare time to train someone else. And if I learn even a fraction of what you can do, maybe I can help Torin myself. Maybe I won't have to rely on you for everything."
+"I help you hunt them." Mira met his eyes. "Draven's emissaries. I'm good at reading people, finding patterns. And I owe you. Let me be useful."
 
-Cassian considered it. Teaching Mira would take time he didn't have. Energy he needed for other things. And trusting her with even basic knowledge of his powers felt dangerous after her betrayal.
+Cassian considered it. Mira was brilliant, determined, and motivated—but also someone who'd already betrayed him once. Trusting her with even basic involvement felt dangerous.
 
-But she was right—he couldn't do everything alone. Couldn't heal every broken person, free every Hollow, fight Draven on every front. He needed help. And Mira, for all her faults, was brilliant, determined, and motivated by love for her brother.
+"You want to help me," he said slowly, "or you want me to teach you enough that you can help Torin yourself?"
 
-"I can't teach you to use the coins," Cassian said carefully. "They're bonded to me. But I can teach you to see what I see. To recognize value, understand exchange, perceive the patterns that govern trades." He pulled out both coins, let them warm his palms. "The principles work without the artifacts. You'll never have my power. But you might develop your own."
+Mira had the grace to look uncomfortable. "Both, if I'm honest. But mostly the first. Because you're right—I can't keep relying on you for everything. And if I'm going to make up for what I did, I need to actually be useful, not just apologetic."
 
-Mira's eyes lit with something fierce. "Then teach me. Starting tomorrow."
+It wasn't a perfect answer. But it was honest. And honesty from Mira was rare enough to be valuable.
 
-"Tomorrow I start with Torin."
+"We'll see," Cassian said noncommittally. "Start by helping me figure out how to free more Hollow without walking into the same trap twice."
 
-"Then the day after."
-
-Cassian smiled despite himself. "Fine. But Mira—if you betray me again, if you use what I teach you against me or anyone else—"
-
-"You'll destroy me," Mira finished. "I know. I'm counting on it. Because if I betray you again, I'll deserve it." She held out her hand. "Deal?"
-
-He looked at her outstretched hand. At the woman who'd stolen from him, lied to him, manipulated him—and who was now offering to become something more. An ally. Maybe eventually a friend, though that felt impossibly distant.
-
-Cassian shook her hand. "Deal. But don't expect trust. That has to be earned."
-
-"I know," Mira said. "I'll earn it. Starting by helping you figure out how to free more Hollow without walking into the same trap twice."
-
-"You have ideas?"
-
-"Maybe." Mira's expression sharpened, became calculating. "Draven's Hollow spread through cities, right? Preachers offering trades to desperate people. What if we intercept them? Find the preachers before they can convert more victims. Free them or stop them or—"
+Mira's expression sharpened, became calculating. "Draven's Hollow spread through cities, right? Emissaries in every major settlement, offering trades to desperate people. What if we intercept them? Find the emissaries before they can convert more victims. Free them or stop them or—"
 
 "Hunt them," Cassian finished, understanding dawning. "We can't repeat the mass liberation. But we can prevent new conversions. Cut off Draven's recruitment at the source."
 
 "Exactly. He's expecting you to try the same trick again. To infiltrate camps, make grand gestures, free hundreds at once. But what if you shift tactics? Become surgical instead of dramatic. Hunt his agents one by one, city by city, until he has no one left to spread his network."
 
-It was brilliant. Cassian felt the pieces clicking together in his mind—the Covenant's authority giving him freedom to travel, the two coins letting him sense and counter Draven's agents, and Mira's tactical mind helping him plan operations that Draven wouldn't anticipate.
+It was brilliant. Cassian felt the pieces clicking together in his mind—the Covenant's authority giving him freedom to travel, the two coins letting him sense and counter Draven's agents, and Mira's tactical mind helping him plan operations.
 
-"It'll be slow," Cassian said. "Could take years to make a real impact."
+"It'll be slow," Cassian said. "Could take years to make a real impact. And I can't be everywhere at once. Draven has agents in dozens of cities."
 
-"Better slow progress than no progress," Mira countered. "And while we hunt his preachers, you work on Torin. Figure out if your cultivation technique works. Maybe develop new methods for freeing people who are too far gone for normal restoration."
+"That's why you need help." Mira leaned forward, intensity in her eyes. "You can't hunt every emissary personally. But if you teach me—teach others—how to recognize them, how to counter their methods, how to offer desperate people better alternatives before Draven's agents reach them..." She paused. "You said it yourself: the principles work without the artifacts. Train people who can act in your name across the Covenant. Emissaries who understand what you understand. Not with your power, but with your knowledge."
 
-"You're assuming I have time for all of this."
+Cassian studied her. It made sense. Terrifying sense. He'd be creating a network of his own—people equipped to fight Draven's conversion tactics city by city. But it would also mean trusting others with dangerous knowledge. Teaching them to recognize value, understand desperation, offer trades that could just as easily be corrupted as used for good.
 
-"You're the Champion of the Realm now," Mira said with bitter amusement. "Time to live up to the title."
+"And you want to be the first," he said.
+
+"I want to help Torin, yes. But I also want to make up for what I did." Mira's voice was fierce. "I betrayed you. Stole from you. Used you. The only way I can earn back even a fraction of trust is by becoming useful. By freeing Hollow in your name. By stopping conversions you can't reach yourself." She met his eyes. "Let me help carry this burden. Not because I deserve it. Because you need help, and I'm willing to work for it."
+
+"While also hoping I'll teach you enough to eventually help Torin yourself," Cassian said, not unkindly.
+
+"Yes," Mira admitted. "Both things can be true. I want to atone, and I want to help my brother. Those motivations don't contradict each other."
+
+Cassian was quiet for a long moment. Then: "Alright. But understand—this isn't just observation. If you're going to counter Draven's agents, you'll need to understand desperation. How to recognize it. How to offer better trades without exploiting the desperate the way Draven does. That knowledge is dangerous. It could easily corrupt someone who uses it selfishly."
+
+"I understand," Mira said.
+
+"And you'll start small. Helping me here in Arvenstead. Learning to identify vulnerable people before Draven's agents reach them. Offering them hope, resources, alternatives. You don't hunt preachers until I'm confident you won't become one yourself."
+
+Mira nodded slowly. "Fair."
+
+"And if you use what I teach to manipulate people—if I see even a hint that you're exploiting desperation for your own ends—"
+
+"You'll destroy me," Mira finished. "And I would deserve it."
+
+Cassian held out his hand. "Then we have a deal. You work for me. You learn from me. And eventually, if you prove trustworthy, you become one of the emissaries who fights this war in cities I can't reach."
+
+Mira shook his hand. "Thank you. For giving me a chance to make this right."
+
+"Don't thank me yet," Cassian said. "This work is going to be harder than you think. And watching desperate people make terrible choices every day... it changes you. Makes you cynical. Makes you wonder if anyone can be saved."
+
+"Then we'll remind each other why we're doing this," Mira said quietly. "When you start to doubt, I'll remind you that you freed a hundred people. When I start to doubt, you'll remind me that my brother is worth fighting for."
+
+Despite everything, Cassian smiled. "Deal."
 
 ---
 
