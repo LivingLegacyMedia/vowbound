@@ -386,196 +386,122 @@ Not gone. Just buried. Waiting to grow back.
 
 ---
 
-Two days later, after rest and recovery, Cassian returned to the markets. This time hunting different prey.
+Two days later, after rest and recovery, Cassian sat with Torin and Mira in the healing ward.
 
-He'd spotted three more emissaries since Perin's restoration. Memorized their patterns, their territories, their methods. But he couldn't restore them yet. His mind was still recovering from bearing Perin's weight.
+"We need to talk about what comes next," he said, setting both coins on the small table between them. "Perin's restoration worked, but it took everything I had. If Draven sends multiple emissaries at once—or if I need to act while I'm still recovering—I'll fail."
 
-Instead, he watched. Learned. Prepared.
+"So what's the solution?" Mira asked.
 
-And wondered if anyone would come for Perin. If Draven would retaliate.
+"Delegation." Cassian picked up the Coin of Heads. "I've been studying the bond between me and the coins. There are pathways I haven't explored yet. Threads suggesting I can extend authority without transferring the bond itself."
 
-The answer came not with violence, but with a presence.
+Torin leaned forward, showing the first real interest Cassian had seen from him in days. "You mean let others use the coins' power?"
 
-Cassian felt it first—a wrongness in the air, like pressure before a storm. The Coin of Heads burned hot in his pocket, warning him. He turned, scanning the market crowd.
+"Temporarily. With my permission. Through me." Cassian held out the Coin of Heads to Mira. "Touch it. Keep contact while I maintain mine."
 
-There.
+Mira hesitated, then placed her fingers on the coin alongside Cassian's. The metal warmed between them.
 
-A man standing perfectly still amid the flowing chaos. Not hollow—his shimmer was too bright for that, too vivid. But wrong in a different way. Like looking at a reflection that didn't quite match its source.
+Cassian closed his eyes, entering his gray space. The threads of connection between him and the coin became visible—complex, layered, strong. And there, underneath, those dormant pathways he'd noticed before. The ones suggesting extension, delegation, shared authority.
 
-The man smiled and began walking toward Cassian.
+He pulled on one carefully, feeding intent into it. *Let her see. Let her borrow what I've been granted. Temporary. Revocable. But real.*
 
-Not threatening. Not hurried. Just... inevitable.
+The coin flared warm.
 
-Cassian's hand closed around both coins. "Mira. Go."
+Mira gasped. "I can—Torin, I can see your thoughts. Not words, just... impressions. You're thinking about sunlight. About how it should feel warm but you can't quite remember what warm is supposed to mean." Her voice trembled with wonder. "It's like seeing inside your mind."
 
-"What—"
+"That's the coin's perception," Cassian said. "Borrowed through me. As long as I maintain the connection, you can use the authority I've been granted. But it's still mine. If I let go—"
 
-"*Go.*" His voice was sharp. "Find the guard. Tell them there's—" He paused. What was there to tell them? A man walking through a market? "Just go. Please."
+He withdrew the thread of delegation. Mira blinked, the enhanced vision fading.
 
-Mira looked at the approaching figure and went pale. She'd learned to recognize danger. She ran.
+"It's gone," she said. "Back to normal sight."
 
-The man stopped a few paces from Cassian, still smiling. "You don't remember me."
+"Because the bond is still mine. You were just renting access." Cassian looked between them. "This is important. I can't be everywhere at once. Can't handle every situation alone. But if I can teach you both to use the coins through me—extend my reach without weakening my bond—we become something more than just three people working separately."
 
-Cassian studied him through the Coin of Heads. The shimmer was... complicated. Layered. As if multiple contracts had been written over the same soul, each one adding another texture. "Should I?"
+"We become a team," Mira said quietly.
 
-"We met briefly. In Millhaven. Before you understood what you were." The man's smile widened. "I was testing you then. Seeing if the rumors were true. If Rowan's son had inherited his father's... peculiarities."
+"We become the people who refuse to stay hollow," Cassian corrected. "The ones who choose wholeness over emptiness. Even when it's harder. Even when it hurts." He picked up the Coin of Seeds. "Torin, I want you to hold this one. Use it to heal yourself—grow new neural connections, repair what Draven broke. But the bond stays mine. You'd be borrowing it long-term."
 
-"And?"
+Torin's flat eyes showed a flicker of something. "You'd trust me with that much power?"
 
-"You passed. Which is why my master sent me now." The man gestured casually. "He's not happy about Perin. The loophole was supposed to remain hidden."
+"On probation," Cassian said honestly. "You've rejected Draven. That counts for something. But your mind is still fragmented. I don't actually know who you are yet—who you'll become when you're whole again. So yes, I'll give you access. And yes, I'll be watching how you use it."
 
-"Good."
+"That's... fair." Torin looked at the Coin of Seeds. "I don't know who I am either. What I'll become when the connections regrow. I can promise I'll try to use it well. Beyond that..." He trailed off.
 
-"Is it?" The man tilted his head. "Perin is dead, you know. Draven found him last night. Made an example. His daughter watched."
+"Beyond that, we'll find out together." Cassian placed the Coin of Seeds in Torin's palm but kept his own hand in contact. "Feel that?"
 
-Cassian's blood went cold. "You're lying."
+"Warmth."
 
-"Am I?" The man's shimmer rippled with something that might have been amusement. "Your Coin grants you authority over mind. Use it. Look into my mind and see if I'm lying."
+"That's the bond. Mine to you, through the coin." Cassian entered his gray space, opening one of those pathways of delegation. "I'm extending authority now. Try to sense what the coin perceives."
 
-Cassian did. He entered the gray space and looked at the man's thoughts.
+Torin's eyes widened—the most dramatic expression Cassian had seen from him. "I can feel... everything growing. The plants in the garden below. Even myself. I can sense where my mind should connect but doesn't. Like seeing gaps in a bridge."
 
-He wasn't lying.
+"That's what you'll practice with. Every day, using the coin to examine your own consciousness. Finding places where new growth is possible." Cassian kept the delegation open, letting Torin acclimate. "The coin won't fix you instantly. But it'll show you where to focus."
 
-Perin was dead. Elena had watched her father—briefly human, briefly whole—cut down by hollow soldiers. The girl had screamed. Had begged. Had been ignored.
+"How long will it take?"
 
-Then the memory twisted, showing Cassian something else. The same scene, but different. Perin alive, walking away with his daughter. Safe. Happy. Whole.
+"Months. Maybe years. Growth isn't fast." Cassian finally released physical contact but left the delegation pathway open—a permanent thread connecting Torin to the coin's authority. "But you'll have the coin with you. And as long as I'm alive, you'll have the power to use it."
 
-Two versions of the same event, layered over each other like thin pages overlapping.
+Torin stared at the coin in his hand. For the first time since restoration, something like hope flickered across his features. "Thank you."
 
-"Which one is real?" Cassian demanded.
+"Use it well." Cassian turned to Mira. "And you—I want to train you with the Coin of Heads. Teach you to perceive intentions, spot deception, gather intelligence. You can go places I can't—court functions with Aldric, merchant meetings. Places where your presence is normal but mine would raise suspicion."
 
-"Both. Neither." The man shrugged. "Does it matter? The point is that you don't know. You restored an emissary, sent him off with nothing but hope, and now you'll never know if he lived or died. If his daughter got her father back or watched him bleed out."
+Mira extended her hand. "When do we start?"
 
-"Why are you here?"
+"Now." Cassian placed the Coin of Heads in her palm, maintaining contact. "First lesson: perception without judgment. You're going to learn to see what people think without assuming you understand why..."
 
-"To deliver a message." The man's smile faded. "My master is prepared to escalate. You've discovered his loophole, so he's closing it. New contracts are being written—ironclad, specific, inescapable. The emissaries you could have saved will now be bound forever." The man leaned closer. "But there's one you can still reach. One he's left vulnerable on purpose."
+They spent the next several hours practicing. Mira learned to sense surface thoughts, identify emotional states, gauge sincerity. Not as powerfully as Cassian—but skillfully enough to be useful.
 
-"A trap."
+By evening, they'd established something new. Not just Cassian fighting alone with magical coins, but three people working together. A team with complementary strengths.
 
-"Obviously. But also an opportunity." The man pulled a small card from his pocket, black ink on white paper. An address. "This emissary has been hollow for a decade. Converted three hundred people personally. Carries the weight of every life he ruined. If you can restore him—if your mental fortitude is strong enough—you'll have saved someone worth saving. And proven your method works even on the deeply broken."
+"We need a name," Mira said as they finished. "Something that says what we are."
 
-Cassian stared at the card. "And if I can't?"
+"The resistance?" Torin suggested flatly.
 
-"Then you'll learn your limits." The man placed the card in Cassian's palm. "He'll be at that address tomorrow at dawn. Alone. Waiting. He wants to be freed. Whether he deserves it..." The man smiled. "That's for you to decide."
+"Too generic." Cassian thought for a moment. "We're the people who refuse emptiness. Who choose to be whole even when it's painful. We're..." He paused, the word forming. "The Unhollow."
 
-Then he was gone, disappearing into the crowd as if he'd never existed.
+Mira tested it. "The Unhollow. I like it. Says exactly what we stand against."
 
-Cassian stood holding the card, feeling its weight.
+"And what we stand for," Torin added, surprising them both with the insight. "Not just opposing Draven. Choosing humanity over convenience."
 
-A trap. Obviously. But if even one word of it was true—if there was an emissary waiting to be freed, carrying that much weight, and Cassian walked away—
+"The Unhollow it is," Cassian said. He looked at his two teammates—damaged but willing, inexperienced but learning. Not the army he'd hoped for. But enough to start with.
 
-Could he live with that?
+Enough to matter.
 
 ---
 
-That evening, Cassian sat with Torin in the healing ward, holding the black card.
+Over the following days, the Unhollow fell into their rhythm.
 
-"It's a trap," Torin observed without needing to read it.
+Cassian spent mornings looking for Perin, worried Draven would retaliate against the freed emissary. Mira's contacts finally tracked him to a grain merchant's cellar—hiding with his daughter, alive and whole. The relief Cassian felt confirmed what he already knew: this work mattered. Every person freed was a victory, no matter how small.
 
-"Obviously."
+Afternoons were for training. Mira practiced using the Coin of Heads' perception. Torin worked with the Coin of Seeds, slowly nurturing new connections in his damaged mind. Each day brought small improvements. Each session revealed new possibilities for what delegation could achieve.
 
-"But you're considering it anyway."
+And evenings, Cassian studied the patterns. Draven's network, the movements of hollow soldiers, the territories where emissaries recruited. Perin helped when he could—teaching Cassian how information flowed through the tethers, how the hierarchy worked, how Draven controlled his forces.
 
-"Yes." Cassian turned the card over in his hands. "Because if it's real—if there's someone there who wants to be freed—I can't just ignore it."
+"These territories are overlapping," Perin said one night, pointing at Cassian's map. "That shouldn't happen. Emissaries have exclusive zones."
 
-"He'll manipulate you. That's what Draven does." Torin's voice was flat. "He'll show you carefully selected truths. Make the hollowing seem reasonable. Necessary. He'll make you doubt everything you're doing."
+"What does overlap mean?" Cassian asked.
 
-"I know."
+"Consolidation. Preparing for something big." Perin's expression darkened. "When I was hollow, we only did this before major operations. Mass recruitments. Or attacks."
 
-"And you'll go anyway."
+Cassian felt the weight of that information settling. Draven was planning something. Something soon.
 
-"I have to. Because if there's even a small chance I can learn something—understand something—that helps me fight him more effectively..." Cassian met Torin's eyes. "Then it's worth the risk."
-
-Torin was quiet for a long moment. Then: "You're assuming you'll recognize the manipulation when it happens. That you'll be able to separate truth from lies. But Draven has decades of experience. You have weeks. That's not a fair match."
-
-"No. It's not." Cassian smiled grimly. "But I have something he doesn't."
-
-"What?"
-
-"The Coin of Heads. Authority over the realm of mind." Cassian pulled it out, feeling its familiar weight. "If he tries to manipulate me—twist my thoughts, plant false beliefs—I'll see it. I can see the state of someone's mind, every detail. Including my own."
-
-"That assumes the coin makes you immune. What if Draven's manipulation is subtle enough that even you can't detect it?"
-
-"Then I'll have learned something valuable: that I'm not as strong as I thought." Cassian pocketed the coin. "But I won't know unless I try."
-
-Torin's expression didn't change, but something shifted in his posture. "You're going to get yourself killed."
-
-"Your sister said the same thing."
-
-"She's probably right."
-
-"Probably." Cassian stood, wincing at the lingering exhaustion in his bones. "But if I don't go, someone who wants to be freed stays hollow. And Draven learns I'm not willing to take risks. That I can be controlled through fear."
-
-"So you're choosing the trap over caution."
-
-"I'm choosing to try instead of giving up." Cassian headed for the door, then paused. "If I don't come back—if this breaks me—tell your sister what happened. Tell her..." He trailed off. What was there to say? "Tell her it was worth trying."
-
-"That's unnecessarily dramatic. You'll probably survive."
-
-"Probably." Cassian smiled. "But just in case."
-
-After he left, Torin sat alone in the dark ward, holding the cooling tea.
-
-He tried to feel something about Cassian walking into danger. Concern. Fear. Hope.
-
-Nothing came.
-
-But he remembered—intellectually, distantly—that once he would have felt all of those things. That once, a friend risking his life would have mattered.
-
-And somewhere deep in his fragmented mind, something whispered that it *should* matter again.
-
-That the absence of feeling wasn't peace. It was just emptiness wearing peace's name.
-
-So he sat with the tea and practiced what Cassian had taught him.
-
-Connecting the sensation of warmth to the memory of safety.
-
-Safety to the concept of friendship.
-
-Friendship to the understanding that Cassian might die tomorrow.
-
-And slowly—painfully slowly—something resembling worry began to form.
-
-It hurt. It was messy. It was uncomfortable.
-
-But it was real.
-
-And real was better than empty.
-
-So Torin kept practicing, growing new connections from ash.
-
-Hoping they'd be strong enough to matter when morning came.
+Which meant the Unhollow needed to act first.
 
 ---
 
-Miles away, in a tent on the edge of Hollow territory, Draven Kane looked at his golden locket and smiled.
+Miles away, in a tent on the edge of Hollow territory, Draven Kane studied his maps and smiled.
 
-"He'll come," he told the trapped coin inside. "Your son. He's too curious not to."
+The boy had freed one emissary. Proven the method could work. Good. That would make him confident. Reckless.
 
-The coin pulsed—whether in agreement or protest, Draven couldn't tell. Not that it mattered.
+And when he inevitably tried to scale up—to restore multiple hollow soldiers at once—that's when Draven would teach him the truth about costs and consequences.
 
-"I won't kill him. That would be wasteful." Draven traced a finger across his maps. "But I will show him the truth. About his methods. About the cost of restoration. About why the hollowing is mercy, not cruelty."
+"Patience," he murmured to the locket containing Rowan's coin. "Your son is clever. But cleverness without experience is just arrogance waiting to be corrected."
 
-He pulled out a ledger, flipping to a specific page. Marcus Thel. Ten years hollow. Three thousand conversions personally conducted. The weight of every life he'd ruined carried in his empty shell.
+He marked a building on his map. The recruitment center in the merchant district. Twenty-three fresh converts inside, barely hollowed for more than a week. Easy targets that would make Cassian feel like salvation was achievable.
 
-"Perfect," Draven murmured.
+While his real forces consolidated elsewhere.
 
-Tomorrow, he'd show Cassian what happened when someone tried to restore an emissary carrying that much accumulated debt. Show him what it felt like to bear the weight of three thousand stolen souls.
+Draven closed his ledger and settled in to wait.
 
-And when Cassian's mind broke under the burden—when he finally understood that some people were too hollow to save, that some weights couldn't be carried—he'd see the truth.
+Tomorrow would bring new lessons.
 
-Emptiness wasn't the enemy.
-
-It was the only shelter in a world where caring meant suffering without end.
-
-Draven closed the ledger and settled in to wait.
-
-Patience had always been his greatest weapon.
-
-And tomorrow, it would break his most dangerous enemy.
-
-Not through force.
-
-But through understanding.
-
-The cruelest trap of all.
+And Cassian would learn what it truly cost to play hero.
