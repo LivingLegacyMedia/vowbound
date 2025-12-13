@@ -122,7 +122,7 @@ Fragments of memory remained. Partial feeling. But the connections were broken. 
 
 *Better than staying hollow,* Cassian told himself. *They can rebuild. We'll help them.*
 
-But the cost to himself was severe. Holding twenty-seven tethers simultaneously had shattered his coherence. Making three separate restoration trades had drained his vitality. His thoughts felt like puzzle pieces dumped from a box. His memories surfaced randomly, disconnected from meaning.
+But the cost to himself was severe. Holding twenty-seven tethers simultaneously had shattered his coherence. Using the Coin of Seeds to broker restorations for the eight who qualified—carefully trading his own vitality to cushion their returns—had drained him further. His thoughts felt like puzzle pieces dumped from a box. His memories surfaced randomly, disconnected from meaning.
 
 Around the room, chaos erupted.
 
@@ -200,11 +200,11 @@ Mira shoved him through the doorway. They ran into the narrow alley behind the w
 
 "Split up!" Torin called back. "Anyone who can, run!"
 
-The group scattered. Cassian stumbled after Mira, his thoughts still disjointed from holding the tethers. His legs felt like water. The coins in his pockets burned hot. Everything was fragmenting—his vision, his thoughts, his sense of direction.
+The group scattered. Cassian stumbled after Mira, his thoughts still broken from holding the tethers. His legs felt like water. The coins in his pockets burned hot. Everything was blurring—his vision, his awareness, his sense of direction.
 
 They turned a corner. Then another. Mira was shouting something but the words wouldn't form meaning. More guards ahead. Blocking the street.
 
-Cassian tried to reach for the Coin of Heads, to perceive a way out, but his mind was too scattered. Holding twenty-seven tethers simultaneously had shattered something inside him. He couldn't focus. Couldn't think.
+Cassian tried to reach for the Coin of Heads, to perceive a way out, but his mind was too damaged. Holding twenty-seven tethers simultaneously had shattered something inside him. He couldn't focus. Couldn't think.
 
 "This way!" Mira dragged him into a side alley.
 
@@ -216,17 +216,37 @@ Cassian fumbled for the coins, trying to make a trade, trying to negotiate, but 
 
 A club struck his shoulder. He went down hard, the coins spilling from his grip and clattering across cobblestones. Mira fought—he heard her screaming, hitting someone—but there were too many.
 
-Hands seized him. Rough voices. His wrists yanked behind his back and bound with rope that bit into skin. Someone grabbed the coins from where they'd fallen.
+Hands seized him. Rough voices. His wrists yanked behind his back and bound with rope that bit into skin. 
 
-"Got him!" a guard shouted. "And the other one!"
+A guard reached for the Coin of Heads. The moment his fingers touched it, the man screamed and jerked back, his hand blistering. "It's burning me!"
 
-Cassian tried to protest, to explain, but his thoughts were scattered puzzle pieces that wouldn't fit together. The world spun. He was being dragged. Mira was beside him, also bound, blood running from her nose.
+"Don't touch them directly, you fool!" the woman's voice snapped. "Use cloth. They're bonded to him—they'll resist anyone else."
 
-More guards arrived. And with them—
+Cassian felt a surge of hope through his broken thoughts. The coins woul resist anyone not bonded to them.
+
+A guard wrapped the coins in thick leather, carefully picking them up without direct contact. Cassian felt the bond stretch but not break, like a rope pulled taut. The coins were still connected to him. He could feel them even as they were carried away, a persistent ache in his chest.
+
+"Secured," the guard reported, holding the leather-wrapped bundle at arm's length. "What do we do with them?"
+
+"Bring them to the holding facility. Draven will want to study them before deciding how to proceed."
+
+"Got him!" another guard shouted. "And the other one!"
+
+Cassian tried to protest, but his thoughts were too scattered. The world spun. He was being dragged. Mira was beside him, also bound, blood running from her nose.
+
+They were hauled back toward the warehouse. In the alley behind it, more guards surrounded two other captives.
 
 Cassian's stomach dropped.
 
-Perin. Hands bound. Blood matted in his hair. And Torin, moving with mechanical compliance, eyes distant. Both captured.
+Perin was on his knees, hands already bound, blood matted in his hair. Three guards stood over him. He must have tried to fight—one guard was nursing a broken nose, another limping.
+
+And Torin stood perfectly still between two guards, unresisting. Not fighting. Not fleeing. Just... compliant. His eyes were distant, that familiar fragmented look. When faced with overwhelming force, his damaged mind had simply shut down, reverting to hollow patterns of obedience.
+
+"This one didn't even struggle," one of Torin's guards reported. "Just stopped running when we caught up. Stood there like he was waiting to be told what to do."
+
+"He's hollow," another guard said, peering at Torin's face. "Or was. Something's wrong with him."
+
+"Doesn't matter. Boss wants all four." The lead guard gestured. "Load them up."
 
 "All four," the lead guard reported to someone out of sight. "And we've secured both artifacts."
 
@@ -238,9 +258,21 @@ Cassian tried to fight, but his body wouldn't obey. Too exhausted. Too fragmente
 
 They were being loaded into a cart. Metal bars. A cage on wheels.
 
+From a shadowed doorway across the street, a small figure watched in horror. Elena had disobeyed her father's instructions to stay hidden. She'd followed at a distance, wanting to see her papa save people like he'd been saved. 
+
+Now she pressed herself against the wall, tears streaming down her face, as four people in chains were locked in a cage. Her papa. The man who'd saved him. And two others.
+
+The cart began to move, guards marching alongside. Elena memorized everything—the direction they went, the warehouse with the painted sign reading "Merchant's Relief Society," the woman in gray giving orders, the leather-wrapped bundle one guard carried with such care.
+
+She would remember. She would tell someone. She had to.
+
+When the cart disappeared around a corner, Elena ran.
+
+---
+
 The last thing Cassian saw before darkness took him was Merchant's Row receding into the distance, and the handful of freed converts scattering into alleys and shadows—some stumbling with partial restoration, some weeping with returned emotions, all of them fleeing while the Unhollow was dragged away in chains.
 
-They'd freed eleven people.
+They'd freed eight people. Maybe.
 
 And lost everything.
 
@@ -256,13 +288,15 @@ In his command tent miles to the north, Draven Kane listened to the report with 
 
 Draven smiled. "Excellent. And the converts he attempted to free?"
 
-"Eleven escaped in the confusion. Five were fully restored through the fraud argument, six partially severed but damaged. Eight were recaptured immediately, three died in the escape, five chose to remain hollow even when their tethers were released, and three fled in panic before we could secure them."
+"Twenty-seven total in the warehouse. Five chose to remain hollow the moment their tethers released—refused freedom entirely. Three fled in blind panic during the initial chaos before we could secure the building—we're still searching for those three. That left nineteen who stayed long enough to attempt restoration and then flee together."
 
-"So from twenty-seven converts, he managed to save eleven." Draven touched the golden locket at his throat, feeling the Coin of Oxen pulse with stolen strength. "Not bad for an amateur. But ultimately futile."
+The emissary consulted his notes. "Of those nineteen: eight were fully restored through the fraud argument, eleven were partially restored—freed from tethers but still damaged. During the escape, we recaptured eight and killed three who resisted. That means eight survived and escaped successfully—five fully restored, three damaged."
 
-"The method worked as you predicted. He held all the tethers, using the Coin of Heads to temporarily take their place in the network. Then he used the Coin of Seeds to help them petition the Law through the fraud argument. The mental strain on him was enormous—he was barely conscious by the time our reinforcements arrived."
+"Eight survivors out of twenty-seven." Draven touched the golden locket at his throat, feeling the Coin of Oxen pulse with stolen strength. "Barely thirty percent. Not bad for an amateur, but ultimately futile."
 
-"Perfect." Draven stood, moving to his maps. "So he can free perhaps two dozen people at once, but it fragments his mind so badly he can't defend himself afterward. The fraud argument works for a small percentage, but most end up only partially restored. And most importantly—he's willing to sacrifice everything, including his own freedom, to save even a handful of people."
+"The method worked as you predicted—we confirmed it through interrogating the recaptured converts before they... expired." The emissary's voice remained clinical. "He held all the tethers simultaneously, using his coin to temporarily take their place in the network. The mental strain on him was enormous—he was barely conscious by the time our reinforcements arrived."
+
+"Perfect." Draven stood, moving to his maps. "So we know his limitations now. He can free perhaps two dozen people at once, but it fragments his mind so badly he can't defend himself afterward. The fraud argument works for a small percentage, but most end up only partially restored. And most importantly—he's willing to sacrifice everything, including his own freedom, to save even a handful of people."
 
 "That makes him predictable."
 
@@ -316,9 +350,9 @@ The King closed his eyes. "And if I send forces to retrieve him?"
 
 "Then your official agent—the man you publicly endorsed as the Covenant's champion—sits in Draven's cells while you do nothing. It makes you look weak. Or complicit."
 
-The King stood, pacing to the window. Below, the city spread out in evening light. Somewhere in those streets, Cassian sat in chains. Somewhere, eleven freed converts scattered and hid, terrified of being recaptured. Somewhere, Draven Kane smiled at how perfectly his trap had worked.
+The King stood, pacing to the window. Below, the city spread out in evening light. Somewhere in those streets, Cassian sat in chains. Somewhere, eight freed converts scattered and hid, terrified of being recaptured. Somewhere, Draven Kane smiled at how perfectly his trap had worked.
 
-"I told him I couldn't officially sanction an unauthorized operation," the King said quietly. "I thought he understood—I was giving him permission to act while maintaining my deniability. I didn't think he'd actually get caught."
+"I gave him tacit permission to act," the King said quietly. "I knew the risks. I thought... I hoped he'd succeed quietly. Extract the people and disappear before anyone noticed. But he's too honest for that kind of operation. Too willing to sacrifice himself." His hands clenched. "I should have known he'd get caught."
 
 "He's exhausted, Your Majesty. The reports say he was barely conscious when they captured him. Whatever he did in that warehouse, it cost him everything he had."
 
