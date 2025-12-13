@@ -144,47 +144,135 @@ The emissary could see it now through Cassian's perception—the tether connecti
 
 "I was deceived," the emissary said, horror dawning in his voice. "He said—Draven said I'd have peace. That I wouldn't suffer anymore. But this isn't peace. It's *nothing*. I feel nothing. I *am* nothing."
 
-"You can take it back," Cassian said. "But first, you need to understand something." Through their connection, he looked and found the emissary's memory of his contract surface—black ink on yellowed paper, elegant script promising relief from suffering in exchange for "service of equivalent value" and "compensation deemed appropriate by the benefactor."
+"You can take it back," Cassian said. "But first, I need to explain something about the contract you signed."
 
-Cassian studied it carefully, his ledger-keeper's mind analyzing every clause. "Do you see it? The terms are deliberately vague. 'Service of equivalent value'—but Draven never specified what service or for how long. 'Compensation deemed appropriate'—but he never defined what was appropriate or who would judge it."
+Through their connection, Cassian showed the emissary his own memory of that day—the contract Draven offered, black ink on yellowed paper, elegant script promising relief from suffering in exchange for "service of equivalent value" and "compensation deemed appropriate by the benefactor."
 
-"I don't understand—"
+The emissary stared at the memory. "I remember signing it. I remember thinking it was fair."
 
-"The contract is open-ended. Exploitable. That's how Draven tricked you—the vagueness made it seem reasonable when you signed, but he interpreted it to mean *everything you are* in exchange for *nothing real*." Cassian's voice grew intense. "But vague contracts cut both ways. If the terms aren't precisely defined, they're open to interpretation. And *you* can interpret them too."
+"Look at the terms again. Really look." Cassian guided his attention to the specific phrases. "'Service of equivalent value'—did Draven ever tell you what that service would be? How long it would last?"
 
-The emissary's hollow eyes widened. "I can... challenge it?"
+"No. He just said... I'd serve. Until the debt was paid."
 
-"You can nullify it. The contract says 'service of equivalent value'—but what you've given is worth far more than what you received. Peace? You got emptiness. That's not equivalent." Cassian showed him through their connection. "You can declare the contract fulfilled. You've already given more than enough service for what you were promised—which was nothing at all. And because the terms are vague, because Draven deliberately left them open to interpretation, you have grounds to reclaim what's yours. If you choose. If you decide you want your humanity back more than you want the emptiness."
+"And 'compensation deemed appropriate by the benefactor'—did he tell you what he considered appropriate?"
 
-Through the connection, the emissary could feel the weight of what he'd lost. Elena's laugh. The pride of being her father. The pain, yes—but also the joy, the love, the *mattering* of it all. Everything that made life worth living, even when it hurt.
+The emissary's hollow eyes narrowed. "He said... peace. Relief from grief."
 
-"The contract is fulfilled," the emissary said, his voice gaining strength. "I've given enough. More than enough. For nothing worth having." His awareness grasped at his scattered pieces—memories, emotions, the capacity to care. "I'm taking back what's mine. By the terms of this contract, which were never clearly defined, I declare my service complete. I reclaim my payment. I refuse the emptiness."
+"Peace." Cassian let the word hang between them. "And what did you actually get?"
+
+"Nothing. I feel... nothing."
+
+"Exactly. Not peace. Emptiness. Those aren't the same thing." Cassian's voice grew intense. "You signed a contract promising peace in exchange for service. But he gave you emptiness—which is worthless—and he's made you serve for *years*. You've been recruiting people, converting hundreds of souls to his network. That's not 'service of equivalent value.' That's slavery."
+
+Through the connection, the emissary could see it now. The contract's vagueness. The way Draven had interpreted every ambiguous phrase to his own advantage. The massive imbalance between what was promised and what was delivered.
+
+"I was cheated," the emissary whispered.
+
+"Yes. And because the terms were never clearly defined, you have the right to challenge them. To demand fair compensation." Cassian pulled out a second object—another coin, different from the first. Warmer. "As an emissary, you know how the Law of Balance works, right? Every trade must be fair. Equal value exchanged."
+
+"Yes. That's what we tell people when they sign."
+
+"Then you understand: if you've given far more than you received, you're owed the difference. It's basic accounting." Cassian's ledger-keeper instincts came through clearly. "You agreed to temporary service for peace. Instead, you've given years of work for nothing. The Law itself will recognize that imbalance—if you petition correctly."
+
+"Petition? How?"
+
+"Here's what's going to happen." Cassian spoke slowly, making sure the emissary understood. "I'm going to make an offer to the Law—to take your place temporarily. You know the connection you feel? The one binding you to Draven's network?"
+
+"The... yes. The pull. Like something's always draining me."
+
+"That's your tether. What Draven uses to keep you hollow." Cassian met his eyes. "I'm going to take that connection onto myself. Just for a short time. That means *I'll* feel the emptiness instead of you. It'll hurt me, but it'll free you. For just a few minutes, you won't be bound to him anymore."
+
+The emissary's breath quickened. "And then?"
+
+"Then you make your own offer to the Law. While you're free, you say: 'I've served for years beyond what my contract required. I've recruited hundreds of people. That service is worth far more than temporary peace—which I never received anyway. I demand compensation. I want my humanity returned.'"
+
+"My... humanity?"
+
+"Everything Draven took from you." Cassian showed him through their connection—the love for Elena, the pride in his work, the capacity to care. "It's not gone. It's being held somewhere. Stored. And if you've overpaid your contract—which you absolutely have—the Law *has* to give it back to you. That's how balance works."
+
+The emissary was quiet for a long moment. Through the connection, Cassian could feel him weighing the choice. The safety of emptiness versus the pain of being human again. The certainty of nothing versus the risk of everything.
+
+Finally: "What do I need to do?"
+
+"When I take your burden, you'll feel the connection release. You'll have a few minutes—maybe less—where you're completely free. Use that time to speak to the Law. Out loud or in your mind, doesn't matter. Tell it you've overpaid. Tell it you demand your humanity back as compensation. Be specific: your love for your daughter, your memories, your ability to feel. Everything Draven took. Understood?"
+
+"Understood."
+
+"The Law will evaluate your claim. If it agrees you've overpaid—and you absolutely have—it'll grant your petition. Your humanity will return." Cassian gripped both coins tightly. "When that happens, don't fight it. Let it in. Let yourself feel again, even though it hurts. Trust me. Can you do that?"
+
+The emissary looked at his hands—hollow, empty, capable of terrible things in Draven's service. Then he looked at Cassian's face, seeing genuine conviction there.
+
+"Yes," he said. "I trust you."
+
+"Then we start now." Cassian closed his eyes, entering the gray space fully. "Remember: when you feel the connection release, petition immediately. You won't have much time before I have to let go."
+
+The emissary nodded, preparing himself.
+
+Cassian reached out to the Law itself, speaking clearly: "I offer to take this man's burden temporarily. His connection to Draven's network—I'll hold it in his place. In exchange, release him from that binding. Just for a few minutes. Let him be free to speak on his own behalf."
+
+The Law considered. It was a fair offer. A burden for a burden, temporary but genuine.
+
+It accepted.
+
+The tether shifted from the emissary to Cassian.
+
+Emptiness flooded in like ice water. Cassian felt the connection to Draven's network wrap around his essence, binding him to that vast reservoir. Felt the pull trying to drain him, to make him hollow. His emotions began to flatten. His thoughts began to scatter.
+
+*Hold on,* he told himself desperately. *Just hold on.*
+
+In the real world, the emissary gasped. For the first time in years, he felt the tether release. The constant draining stopped. He was free.
+
+"Now!" Cassian managed through gritted teeth. "Petition now!"
+
+The emissary didn't need to enter any gray space—Cassian was doing that for him. He just needed to speak. To make his case to the Law that governed all exchanges.
+
+"I signed a contract," the emissary said, his voice gaining strength as he spoke. "Draven Kane promised me peace in exchange for service of equivalent value. But I got nothing—no peace, just emptiness. And I've given him *years*. I've recruited hundreds of people. I've served his network. That wasn't in my contract. That's not equivalent service—I've overpaid."
 
 The Law listened.
 
-It evaluated the contract—the vague terms, the unbalanced exchange, the debtor's claim that service had been rendered and found wanting.
+"I demand what's owed to me," the emissary continued. "I've paid far more than my contract required. I want compensation. I want my humanity back—everything that was taken. My love for my daughter. My memories. My ability to feel. Everything Draven holds that's mine. That's fair. That's balanced. I've earned it."
 
-The Law accepted the claim.
+In the gray space, Cassian felt the Law evaluating the claim. Checking the contract's vague language. Weighing years of service as an emissary against the promised "relief from suffering" that had never truly been delivered.
 
-The tether shattered.
+The balance was not even close.
 
-Everything that had been drained away rushed back in a flood—memories, emotions, connections, the full weight of being human. The emissary screamed as it hit him all at once. Years of accumulated experience crashing back into his awareness.
+The emissary had overpaid.
 
-Cassian held the connection steady, bearing some of the weight, preventing it from destroying the man's mind. The Coin of Heads gave him the mental fortitude to withstand it—to carry the burden until the emissary could adjust, could integrate, could remember how to hold his own wholeness.
+Drastically.
 
-It was like holding another person's entire consciousness on his shoulders. The weight of every memory, every emotion, every connection flooding back into Perin's mind—all of it threatening to overwhelm both of them. Cassian's vision grayed at the edges. His own thoughts began to blur with Perin's. For a terrifying moment, he couldn't remember which memories were his and which were borrowed.
+The Law ruled in his favor.
 
-Then the Coin of Heads flared hot in his palm, and clarity returned. His mind was his own. Strong enough to bear this. Strong enough to help.
+From Draven's reservoir, everything that had been drained away—the emissary's love, his grief, his memories, his capacity to care—came rushing back like a dam breaking. But Cassian was ready. Even as the hollowness tried to overwhelm him, he channeled the returning humanity through his second coin.
 
-Through the network, Cassian felt Draven's awareness snap toward them—surprise, then cold understanding. But by then it was too late. The transaction was complete. The Law had sided with Perin.
+Cassian could barely hold it—maintaining the tether with one coin while the other facilitated restoration, all while the network tried to hollow him out. His vision grayed. His thoughts began to blur. For a terrifying moment, he felt himself fragmenting, becoming nothing—
 
-Cassian waited, bracing himself. Last time—when he'd freed Torin—someone had died. Or so it had seemed. The network compensating, taking what it needed elsewhere. But now...
+Then he released the tether.
 
-Nothing.
+The connection snapped back toward Perin, but found nowhere to attach. Perin was whole now, his humanity restored and growing. The tether couldn't reconnect to someone who was complete. It scattered into fragments, dissipating into the gray space.
 
-He did not sense a life winking out in the network. No death to balance the equation. Just Perin, gasping and whole, and Cassian exhausted but intact.
+Gone.
 
-Once again, Cassian wondered if the woman's death had been a consequence of his own action, or one of Draven's tricks.
+Cassian collapsed back into his own mind, gasping. Both coins burned in his palms—the Coin of Heads keeping his thoughts coherent despite the exhaustion, the Coin of Seeds still humming with residual growth energy.
+
+Through the network, Cassian felt Draven's awareness snap toward them—surprise, then cold understanding. But by then it was too late. Both trades were complete. The Law had sided with Perin.
+
+Cassian waited, bracing himself. Last time—when he'd freed Torin—he'd only had one coin. He'd taken Torin's place temporarily, given him a window of freedom, but had no way to restore what had already been drained away. Torin had been able to break the tether through resistance, but the damage was already done. Weeks of being hollow had depleted his humanity, and Cassian had no way to return it.
+
+But this time was different. This time, Cassian had both coins. The Coin of Heads to hold the tether away from the hollow's mind. The Coin of Seeds to broker a trade for restoration. And Perin himself had been hollow long enough to have *overpaid* his contract substantially—giving him the legal argument to demand a full refund.
+
+Two trades. Two coins. Both necessary.
+
+And the trades were elegant. Balanced. Fair.
+
+The Law couldn't deny them.
+
+Cassian sensed no death in the network. No compensation required elsewhere. Just Perin, gasping and whole, and Cassian exhausted but intact.
+
+The difference was simple: Torin's contract was still technically active when Cassian freed him. The Law had no grounds to return what Draven had taken because the agreement was still in force. Perin's contract, however, had been fulfilled beyond its terms. The Law *had* to return what was owed.
+
+One method scattered the tether through resistance. The other nullified the contract through legal argument.
+
+Both freed the person. But only one restored them completely.
 
 No time to wonder. Carefully, painfully, Cassian withdrew.
 

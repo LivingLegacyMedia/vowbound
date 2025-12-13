@@ -276,45 +276,71 @@ Unless they didn't have to.
 
 "How?" Torin asked.
 
-"By restoring his soldiers. Systematically. In large numbers." Cassian pulled out the Coin of Heads. "I've been restoring emissaries one at a time because it's safe. Careful. But if Draven's preparing a major move, we don't have time for careful. We need to strike first. Hard. Break enough of his network that he can't sustain an organized attack."
+"By restoring his soldiers. Systematically. In large numbers." Cassian pulled out both coins. "With Perin, I discovered a method that works—but it requires two simultaneous trades and enormous concentration. If Draven's preparing a major move, I need to scale that method up. Hit a recruitment center. Free everyone at once."
 
-"That would require you to bear enormous weight," Perin said from the doorway—Cassian hadn't heard him enter. "Every hollow soldier you restore, you carry their return to consciousness. Their guilt, trauma, everything flooding back. Do that for dozens of people simultaneously..."
+"Two trades?" Mira asked. "What do you mean?"
 
-"It might kill me. I know." Cassian met their eyes. "But if I don't try, Draven attacks the palace, people die, and the king falls. Then there's no resistance at all. Just slow conquest."
+Cassian held up the Coin of Heads. "First, I temporarily take their place in the network. Their tethers connect to me instead of them. That gives them a window of freedom where they're not bound to Draven. But it means I feel their hollowness. All of it. At once."
 
-"There has to be another way," Mira said.
+"How many people are we talking about?" Perin asked, concern evident.
 
-"What way? We're out of time. Out of options." Cassian looked at the Coin of Heads in his palm. "Unless one of you has a better plan?"
+"Twenty to thirty newly converted soldiers in the recruitment center I've been watching. Fresh converts—most hollowed within the last few weeks." Cassian set down the Coin of Heads and picked up the Coin of Seeds. "That's important. They haven't been drained much yet."
+
+"Why does that matter?" Mira asked.
+
+"Because it changes what's possible." Cassian looked at Torin. "When I freed you, you'd been hollow for three weeks. Draven had already drained some of your humanity—used it for his network. When I broke your tether, that humanity was *gone*. I couldn't restore what had already been consumed. That's why you're still fragmented."
+
+Torin nodded slowly. "But Perin had been hollow for years. You restored him completely."
+
+"Because he'd overpaid his contract massively. Years of service as an emissary gave him legal grounds to demand *everything* back from Draven's reservoir. The Law had to return what was taken." Cassian tapped the Coin of Seeds. "But these fresh converts? They haven't overpaid. They've barely started serving. They can't make the same legal argument Perin did."
+
+"So they'd end up like me," Torin said. "Freed but broken."
+
+"Maybe not." Cassian's voice gained intensity. "If they've only been hollow for days or weeks, Draven hasn't drained much from them yet. Most of their humanity is still there—just disconnected, not consumed. When I break the tethers, they'll be like you were: damaged, but not destroyed. Better than staying hollow. Not as good as full restoration, but functional."
+
+Perin frowned. "That's your plan? Free them knowing they'll be broken?"
+
+"That's my *fallback* plan." Cassian held up the Coin of Seeds. "First, I try something else. I help them argue that Draven's contracts are fraudulent—that he promised peace but delivered emptiness, making the entire agreement void. If the Law accepts that argument, their humanity gets returned just like yours did."
+
+"And if the Law doesn't accept it?"
+
+"Then I break the tethers anyway. They end up partially damaged, but free." Cassian met their eyes. "It's not perfect. But it's better than leaving them hollow while Draven marches on the palace."
 
 Silence.
 
-Then Torin spoke, his voice still flat but thoughtful. "What if you didn't bear all the weight yourself?"
+Then Torin spoke, his voice still flat but thoughtful. "The fraudulent contract argument is weak."
 
-"What do you mean?"
+"I know."
 
-"You've been restoring people by making yourself the bridge. Connecting your intact mind to their fragmented one, showing them wholeness, carrying the burden as they reintegrate." Torin held up the Coin of Seeds. "But you taught me that growth doesn't have to be forced. That sometimes you just provide the right conditions and let things develop naturally."
+"Draven has been doing this for decades. His contracts are carefully worded. The Law might not consider 'emptiness instead of peace' to be fraud—just interpretation."
 
-"I don't follow."
+"I know that too." Cassian set down both coins. "But I have to try. If even a few of them can make that argument successfully, they'll be fully restored. The rest..." He gestured to Torin. "They'll be like you. Broken but fixable. We can help them rebuild, the same way we're helping you."
 
-"What if instead of carrying each person's restoration, you created an environment where they could restore themselves?" Torin's damaged face showed concentration. "Use both coins together. The Coin of Heads to sever the tethers—break their connection to Draven's network. Then the Coin of Seeds to provide growth energy. Let them reconnect to their own humanity naturally, without you bearing the weight."
+"That's a lot of broken people to repair," Mira said quietly.
 
-Cassian stared at him. "That's..."
+"Yes. But it's better than a lot of hollow people serving Draven." Cassian picked up the coins again. "And it proves the method works at scale. Next time, I'll know which arguments the Law accepts. Which timing works best. How to improve the process."
 
-"Insane," Mira finished.
+"You're treating this like an experiment," Perin observed.
 
-"Brilliant," Cassian corrected. "Risky, untested, and probably dangerous. But brilliant." He looked at Torin with new appreciation. "You're getting smarter. The coin's helping you think again."
+"I'm treating it like war." Cassian's voice was hard. "Every battle teaches you something. Every victory—even a partial one—is progress. I'd rather free twenty people imperfectly than save zero people perfectly."
 
-"Or I was always this smart and just couldn't access it." Something that might have been satisfaction flickered across Torin's face. "Either way. It's an option."
+Torin's damaged face showed something that might have been approval. "Pragmatic."
 
-"An option that could fail catastrophically," Perin warned. "If you sever the tethers wrong, people could fragment permanently. If the growth energy is too much, their minds might not be able to handle it. You could create dozens of people worse off than they were hollow."
+"Desperate," Cassian corrected. "But you're right—I'm not going to let perfect be the enemy of good. These people signed contracts they didn't understand. Even if I can only partially restore them, that's better than leaving them in Draven's network."
 
-"Or we could free them. Give them a chance." Cassian looked around at his small team. "We've been building toward this. Learning delegation, teaching each other, preparing for exactly this kind of desperate gamble. Maybe this is when we find out if it works."
+"The mental strain will still be enormous," Perin warned. "Holding twenty or thirty tethers at once, even for a few seconds..."
+
+"I know. But that's where Torin's insight helps." Cassian looked at the young man. "You said I should separate the actions. Hold the tethers just long enough for them to petition, then release immediately. That minimizes how long I'm connected to the network."
+
+"It also means you can't guide their restorations individually," Torin pointed out. "If some of them get their humanity back and some don't, they'll all be going through different experiences at once. Some screaming from returned emotions, some confused by partial restoration, some still empty. Chaos."
+
+"Then we manage the chaos." Cassian looked around at his small team. "Perin, you've been through restoration. You can help the ones who get their full humanity back deal with the flood of emotions. Torin, you understand what partial restoration feels like. You can help the ones who end up damaged. Mira handles security and evacuation. And I..." He gripped both coins. "I focus everything on the trades. On holding those tethers and giving them their chance."
 
 "When would you try it?" Mira asked quietly.
 
-"Tomorrow night. There's a hollow recruitment center in the merchant district—one of their main operations. I've been watching it for days. Usually has twenty to thirty newly converted soldiers inside. Fresh tethers, not deeply embedded yet." Cassian's voice steadied as the plan took shape. "We hit it. Sever everyone at once. Flood the space with growth energy from the Coin of Seeds. Let them restore themselves while I just provide the conditions."
+"Tomorrow night. The recruitment center in the merchant district. I've been watching it for days—usually has twenty to thirty newly converted soldiers inside. Fresh tethers, not deeply embedded yet." Cassian's voice steadied as the plan took shape. "We hit it fast. I try the fraud argument first. If it works for some, great. For the rest, I break the tethers and accept they'll be partially damaged. We evacuate everyone who can walk and help those who can't."
 
-"That's where the attack will be vulnerable," Perin said. "While you're focused on restoration, you'll be defenseless. If other hollow soldiers come—if emissaries respond—"
+"That's where the attack will be vulnerable," Perin said. "While you're focused on the trades, you'll be defenseless. If other hollow soldiers come—if emissaries respond—"
 
 "Then we protect him," Mira said firmly. "That's what you built this team for, right? So you're not alone? So when you need to focus everything on the coins, the rest of us can handle the tactical problems?"
 
