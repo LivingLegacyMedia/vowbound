@@ -238,9 +238,9 @@ They were hauled back toward the warehouse. In the alley behind it, more guards 
 
 Cassian's stomach dropped.
 
-Perin was on his knees, hands already bound, blood matted in his hair. Three guards stood over him. He must have tried to fight—one guard was nursing a broken nose, another limping.
+Perin was on his knees, hands already bound, blood matted in his hair. The three guards standing over him looked worse for wear—one nursing a broken nose, another limping, a third with scratches down his face. Perin had fought hard before they'd overwhelmed him.
 
-And Torin stood perfectly still between two guards, unresisting. Not fighting. Not fleeing. Just... compliant. His eyes were distant, that familiar fragmented look. When faced with overwhelming force, his damaged mind had simply shut down, reverting to hollow patterns of obedience.
+And Torin stood perfectly still between two different guards, unresisting. Not fighting. Not fleeing. Just... compliant. His eyes were distant, that familiar fragmented look. When faced with overwhelming force, his damaged mind had simply shut down, reverting to hollow patterns of obedience.
 
 "This one didn't even struggle," one of Torin's guards reported. "Just stopped running when we caught up. Stood there like he was waiting to be told what to do."
 
