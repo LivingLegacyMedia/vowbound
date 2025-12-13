@@ -10,7 +10,7 @@ Cassian, Mira, and Perin arrived together, and Torin looked up from his work.
 
 Mira leaned over the map. "So what do we do?"
 
-"We hit him first." Cassian tapped a location in the merchant district. "There's a recruitment center here. I've been watching it for days. Twenty-three newly converted soldiers inside right now—fresh tethers, not deeply embedded yet."
+"We hit him first." Cassian tapped a location in the merchant district. "There's a recruitment center here. I've been watching it for days. It looks like they're holding around twenty to twenty-five fresh converts at any given time. We need to strike while they're still new, before Draven drains them too much."
 
 "You want to free them all?" Torin asked. "At once?"
 
@@ -72,7 +72,7 @@ Torin's damaged face showed something that might have been approval. "Pragmatic.
 
 "Desperate," Cassian corrected. "But you're right—I'm not going to let perfect be the enemy of good. These people signed contracts they didn't understand. Even if I can only partially restore them, that's better than leaving them in Draven's network."
 
-"The mental strain will still be enormous," Perin warned. "Holding twenty-three tethers at once, even for a few seconds..."
+"The mental strain will still be enormous," Perin warned. "Holding twenty or more tethers at once, even for a few seconds..."
 
 "I know. But that's where Torin's insight helps." Cassian looked at the young man. "You said I should separate the actions. Hold the tethers just long enough for them to petition, then release immediately. That minimizes how long I'm connected to the network."
 
@@ -90,7 +90,43 @@ Torin's damaged face showed something that might have been approval. "Pragmatic.
 
 "Exactly." Cassian met her eyes, then Torin's, then Perin's. "I can't do this alone. But I'm not alone anymore. We're the Unhollow. Tomorrow night, we prove what that means."
 
-Perin nodded. "Four people against an empire. Should be interesting."
+Mira's expression shifted. "Wait. Shouldn't we coordinate with the King? You're his official agent. He has guards, resources—"
+
+"I tried." Cassian's voice turned bitter. "Yesterday I requested royal forces to raid the recruitment center. Do you know what the council said? That there's 'insufficient evidence' it's connected to Draven."
+
+"Insufficient evidence?" Perin stared at him. "It's full of hollow converts!"
+
+"But it's registered as the 'Merchant's Relief Society,'" Cassian said. "Officially, they're a charitable organization helping desperate people restructure debts. The contracts don't mention Draven's name. The handlers claim to be independent agents. And the people running it are respected merchants who donate to the crown's coffers."
+
+"That's insane," Mira said.
+
+"That's deliberate." Cassian pulled out a crumpled contract he'd obtained from a refugee. "Look at this. Not a single reference to Draven Kane, the Hollow, or military service. Just vague language about 'entering a network of mutual support.' Legally, it looks like a debt consolidation agreement."
+
+Torin studied the contract with his fragmented but methodical mind. "But you know it connects to Draven's network. You can sense the tethers."
+
+"I can...but I can't prove it in a way that the council will accept." Cassian's frustration was evident. "They want physical evidence. Witnesses who'll testify that they were recruited for Draven's army. Documents bearing his seal. I've given them everything I can, and they keep demanding more proof."
+
+"Why?" Mira asked. "What do they gain by protecting these places?"
+
+"Some council members genuinely don't understand what they're seeing—they think these are just predatory lenders, not enemy operations. Others profit from hollow labor in their businesses." Cassian's voice hardened. "And a few... I think a few are compromised. Either hollow themselves, or blackmailed, or bribed. Draven's gotten to them somehow."
+
+"Did you tell the King this?"
+
+"I went to him directly this morning. Warned him about Perin's intelligence on emissary movements. Told him we need to act now." Cassian slumped against the table. "He believes me. I could see it in his eyes. But he said his generals won't commit forces without the council's approval. If he orders a raid and it turns out to be a legitimate business, the merchants guild will revolt. And if we're wrong about the timing, we provoke Draven into attacking before we're ready."
+
+"So his hands are tied," Perin said quietly.
+
+"By politics and procedure, yes. But when I asked if he would stop me from acting independently..." Cassian met their eyes. "He said: 'I cannot officially sanction an unauthorized operation. But if a concerned citizen happened to rescue people from illegal detention, the crown would have to investigate... eventually.' Then he dismissed me before I could ask anything else."
+
+"Plausible deniability," Perin said. "If you succeed, he can claim you were acting under his authority all along. If you fail, you were a rogue agent he knew nothing about."
+
+"Exactly." Cassian looked around at them. "So we're operating without official support. No royal guards. No backup. No legal authority. If we're caught, the King will disavow us. If we fail, we're on our own. And if Draven's people identify us, we become targets."
+
+"But we're doing it anyway," Mira said. It wasn't a question.
+
+"We're doing it anyway." Cassian met each of their eyes. "Because while the council debates whether the Merchant's Relief Society is technically committing treason, twenty-seven people are having their humanity drained. And tomorrow there'll be twenty-seven more. I can't save everyone. But I can save these people. Tonight."
+
+Perin nodded slowly. "Four people against an empire. Operating in the shadows. Should be interesting."
 
 "Then it's decided." Cassian pocketed the Coin of Heads and looked at Torin holding the Coin of Seeds. "Tomorrow we find out if this delegation plan works in a real crisis. If we can combine the coins' powers. If we can free dozens of people without killing ourselves in the process."
 
@@ -116,7 +152,7 @@ Cassian took Perin back to the recruitment center, watching from a safe distance
 
 "And Torin?"
 
-"Inside with you. If people start fragmenting, he's the only one who understands what that feels like. He can keep them calm while you're maintaining the tethers." Perin's expression was grim. "This is going to be messy, Cassian. Even if everything goes perfectly, you're talking about twenty-three people all experiencing trauma simultaneously. Some will panic. Some will break down. Some might lash out."
+"Inside with you. If people start fragmenting, he's the only one who understands what that feels like. He can keep them calm while you're maintaining the tethers." Perin's expression was grim. "This is going to be messy, Cassian. Even if everything goes perfectly, you're talking about twenty-some people all experiencing trauma simultaneously. Some will panic. Some will break down. Some might lash out."
 
 "I know." Cassian had been thinking about exactly that. "That's why I need you and Torin inside. I can't manage the trades *and* manage the people. I need to trust you to handle them."
 
@@ -136,13 +172,13 @@ Perin was quiet for a moment. Then: "Thank you. For seeing it that way."
 
 That afternoon, in the healing ward's private room, Cassian and Torin rehearsed.
 
-"When I take the tethers," Cassian explained, both coins on the table between them, "I'll feel all their hollowness at once. Twenty-three connections pulling at me, trying to drain me empty. I can probably hold that for thirty seconds. Maybe a minute if I'm lucky. That's the window."
+"When I take the tethers," Cassian explained, both coins on the table between them, "I'll feel all their hollowness at once. However many there are—twenty, twenty-five—all those connections pulling at me, trying to drain me empty. I can probably hold that for thirty seconds. Maybe a minute if I'm lucky. That's the window."
 
 "For them to petition," Torin said, his flat voice somehow conveying concentration. "To argue fraud and hope the Law accepts it."
 
 "Right. But I can't speak for them—the petition has to come from each person individually. Their own voice, their own claim." Cassian picked up the Coin of Heads. "So I'll need to show them how. Demonstrate what fraud looks like through the connection. Give them the words."
 
-"That's another task while you're holding the tethers. Teaching twenty-three people simultaneously how to petition the Law." Torin's expression didn't change, but his tone held a note of concern. "Cassian, I don't think you understand how much mental strain that is."
+"That's another task while you're holding the tethers. Teaching twenty-plus people simultaneously how to petition the Law." Torin's expression didn't change, but his tone held a note of concern. "Cassian, I don't think you understand how much mental strain that is."
 
 "I understand it's tremendous. But I'm going to do it anyway." Cassian met his eyes. "Unless you have a better idea?"
 
@@ -150,15 +186,15 @@ Torin was quiet for a long moment, his damaged mind working through the problem 
 
 "How would that work?"
 
-"You take the tethers, create the window of freedom. But instead of trying to reach all twenty-three people, you focus on one. The strongest mind. The most intact." Torin gestured with his hands, trying to illustrate a concept his words couldn't quite capture. "You show that person how to petition. Really show them—walk them through it, make sure they understand. Then..."
+"You take the tethers, create the window of freedom. But instead of trying to reach all of them at once, you focus on one. The strongest mind. The most intact." Torin gestured with his hands, trying to illustrate a concept his words couldn't quite capture. "You show that person how to petition. Really show them—walk them through it, make sure they understand. Then..."
 
 "Then that person helps the others," Cassian finished, seeing it. "While I maintain the tethers, they spread the knowledge. Peer to peer."
 
-"It's more efficient. And it gives you one task instead of twenty-three." Torin picked up the Coin of Seeds. "While you're doing that, I use this to help the fragmented ones. The ones who can't petition because their minds are too broken. I give them what stability I can."
+"It's more efficient. And it gives you one task instead of twenty or more." Torin picked up the Coin of Seeds. "While you're doing that, I use this to help the fragmented ones. The ones who can't petition because their minds are too broken. I give them what stability I can."
 
 "You'd be working through me. Using delegated authority." Cassian considered the logistics. "Could you manage that while I'm holding tethers and teaching simultaneously?"
 
-"I don't know. But I can try." For the first time, Torin showed something approaching determination. "I'm getting better at using the coin. Yesterday I maintained connection to twelve separate plants at once, encouraging them all to grow. Twenty-three minds would be harder, but the principle is the same."
+"I don't know. But I can try." For the first time, Torin showed something approaching determination. "I'm getting better at using the coin. Yesterday I maintained connection to twelve separate plants at once, encouraging them all to grow. Twenty or more minds would be harder, but the principle is the same."
 
 Cassian studied him. The young man had come far in just a few days. Still fragmented, still struggling to connect emotion to memory, but *functional*. Improving. "This could work. If we coordinate perfectly."
 
@@ -174,7 +210,7 @@ It was exhausting. By the end, Cassian's head pounded and his hands shook. But t
 
 On a single person.
 
-Tomorrow they'd try it on twenty-three.
+Tomorrow they'd try it on more than twenty.
 
 ---
 
@@ -226,7 +262,7 @@ Tomorrow night, they'd find out if that was enough.
 
 That night, Cassian lay awake considering the risks.
 
-Twenty-three people. All being restored simultaneously. All reconnecting to their humanity at once while he provided the framework, held the space, maintained impossible balance.
+However many people were inside that recruitment center—twenty, twenty-five, maybe more—they'd all be restored simultaneously. All reconnecting to their humanity at once while he provided the framework, held the space, maintained impossible balance.
 
 If it failed, he could fragment dozens of minds beyond repair. Create permanent damage worse than the hollowing itself. Draven would use that failure as proof that restoration was cruel, that emptiness was mercy, that resistance meant suffering.
 
