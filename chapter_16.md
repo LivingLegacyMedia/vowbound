@@ -114,11 +114,13 @@ The name hung in the air. Perin's daughter. The eight-year-old girl who'd watche
 
 From across the hall, Perin's voice emerged, broken and raw: "She saw it happen. She was supposed to stay hidden, but she followed us. She saw everything."
 
-"She's smart," Cassian said. "She'll stay safe."
+"She's smart," Cassian said. "She'll find help. She knows where the safe houses are—"
 
-"She's eight." Perin's voice cracked. "And she just watched them take me again. After you saved me. After I thought... after we thought..."
+"She's eight years old!" Perin's shout echoed off the stone walls. "She watched them drag her father away in chains. Again. After everything—after you saved me, after I thought we were finally safe, after she finally stopped having nightmares—" His voice broke. "She was supposed to stay hidden. She promised me. But she followed anyway because she wanted to see her papa be brave."
 
-"We tried," Mira said firmly. "We freed eight people. Maybe more, if the eleven damaged ones can rebuild themselves."
+The silence that followed was suffocating.
+
+"We freed eight people," Mira said finally, but her voice was hollow. "Maybe more, if the eleven damaged ones can rebuild themselves."
 
 "And how many got recaptured?" Perin's laugh was bitter. "How many died? I saw that woman's head hit the stone. She wasn't moving after."
 
@@ -150,27 +152,15 @@ His perspective lurched sideways, and suddenly he was seeing through different e
 
 A laboratory. Well-lit by multiple lanterns. Tables covered with instruments—scales, calipers, hammers, chisels. And in the center, on a cushion of black velvet, lay both coins.
 
-Two robed figures stood over them, taking notes and conducting tests.
+The room was empty. No guards. No researchers. Just the coins, resting in the quiet.
 
-Cassian's awareness stabilized, anchoring to the Coin of Heads' perspective. He could see the room, hear the sounds, perceive the value in everything around him. But it was like watching through a thick window—he could observe but not interact.
+Cassian's awareness stabilized, anchoring to the Coin of Heads' perspective. He could see the room, hear the sounds, perceive the value in everything around him. But it was like watching through a thick window—he could observe but not truly interact. Not from this distance.
 
-One figure picked up the Coin of Heads carefully, using thick leather gloves. Even through the protection, the person winced. "Still warm. The bond is remarkably persistent."
+The laboratory was full of valuable equipment. Research notes scattered across desks. And his coins, waiting.
 
-The other figure was writing. "We've tried several approaches, but they all produce feedback. The one time we attempted forced severance, the temperature spiked dramatically. Nearly set fire to the table."
+*If I can just get there,* he thought. *If I can reach them physically, I'll have my full power back.*
 
-"These aren't ordinary artifacts. The bonding mechanism is deeply embedded." The first figure set the coin down carefully. "Severing the connection might harm both the artifact and the bearer."
-
-"Does he still have access to their power? Even locked in a cell?"
-
-"Unknown. His awareness seems fragmented from what he did at the warehouse. But if he recovers..." A pause. "We should monitor for any unusual activity."
-
-Cassian pulled his awareness back before they noticed anything. He couldn't risk them detecting his observation.
-
-Which meant attempting any trade was playing directly into Draven's hands.
-
-But what choice did they have? Without the coins' power, they had no way to escape. The cell bars were too strong. The guards too numerous. And Veylin would be back in the morning with her questions and her metal rod.
-
-*I need to think this through,* Cassian told himself. *Need to find an approach Draven won't expect.*
+But that was the problem. The cell bars were too strong. The guards too numerous. And Veylin would be back in the morning with her questions and her metal rod.
 
 His awareness snapped back to his body with nauseating abruptness. The cell solidified around him. The pain returned in full force.
 
@@ -194,13 +184,13 @@ His awareness snapped back to his body with nauseating abruptness. The cell soli
 
 "Maybe. But if he does, it'll be a political nightmare. The Relief Society will claim we committed crimes, that the King is overreaching, that he's protecting criminals." Cassian shook his head. "And even if he tries, Draven will have contingencies. We can't count on rescue."
 
-From across the hall, Torin finally stirred. His voice emerged, flat and distant: "The building layout. Three floors. We're on the ground level. North wing is second floor—I saw it when they brought us in. Two staircases. Guard rotation every three hours."
+From across the hall, Torin finally stirred. His voice emerged, flat and distant: "The building layout. Three floors. We're on the ground level. North wing is second floor. Two staircases. Guard rotation every three hours."
 
 Everyone turned to look at him. Torin hadn't spoken since they'd been captured.
 
 "You've been listening?" Mira asked.
 
-"Always listening." Torin sat up slowly, movements mechanical. "It's easier than feeling. Listening. Cataloging." His eyes focused on Cassian. "You want to reach the north wing. Steal the third coin. But you can't access your coins' power from this distance, and you can't walk through walls."
+"Always listening." Torin sat up slowly, movements mechanical. "The guards talk. They don't think prisoners can understand. But I catalog everything. Guard schedules. Room locations. Door positions." His eyes focused on Cassian. "It's easier than feeling. You want to reach the north wing. But you can't access your coins' full power from this distance, and you can't walk through walls."
 
 "I know."
 
@@ -258,79 +248,133 @@ Perin was quiet for a long moment. Then he stood, moving to his cell door. "Fine
 
 Cassian felt a surge of gratitude. "Thank you."
 
-"Thank me when we're not captured anymore." Perin tested the door, pushing experimentally. "These bars. Can you get rid of them?"
+"Thank me when we're not captured anymore." Perin tested the door, pushing experimentally. "So how do we get out?"
 
-"I can't remove them or weaken them. Not enough to matter." Cassian reached for the Coin of Heads again, focusing on Perin's cell door lock. "But I might be able to trade for something that would heplu  a key."
+Cassian was quiet, thinking. "The mortar," he said slowly. "Between the stones around your door frame. It's old. Crumbling."
 
-He entered the gray space—barely, just enough to perceive the value threads. The lock was simple iron, worth perhaps two copper coins. Its value was in keeping Perin contained. The tumblers inside had a specific configuration.
+"So?"
 
-Cassian spoke carefully to the Law: "I offer this trade. I'll pay with my own vitality—two weeks of my natural lifespan. In exchange, create a key that matches this lock. A precise duplicate of the pattern needed to open it."
+"So there are cracks. And in cracks, things grow." Cassian reached for the Coin of Seeds through the distant bond. "Moss. Lichen. Maybe seeds blown in from outside, dormant in the dirt. I can feel them—tiny, waiting."
 
-The Law considered. It was a specific request, small in scope but requiring precision. Two weeks of life for a shaped piece of metal that matched an existing pattern. 
+Torin understood first. "You can make them grow."
 
-The exchange was inefficient—Cassian was overpaying. Making trades remotely, with the coins so distant, cost more than it should. His mind was still weary from holding the tethers, and it made every transaction harder.
+"Fast enough to break the mortar. The door frame will lose its anchor. Then Perin can pull it free."
 
-But the Law accepted.
+"That's insane," Mira said.
 
-Value flowed out of Cassian—two weeks of his life, measured in heartbeats and breaths and potential moments. In his hand, metal began to form—drawn from the very bars of his own cell, reshaped atom by atom. A key materialized, warm and solid against his palm.
+"Everything about this is insane." Cassian closed his eyes, entering the gray space. He could perceive the tiny sparks of life around Perin's door—seeds so small they were almost nothing. Waiting for spring that would never come in this dark hallway. But with enough growth energy...
 
-It cost him dearly. He felt the vitality drain, felt his already fragmented mind grow hazier. But it worked.
+He spoke to the Law: "I offer this trade. Four days of my vitality, transferred to accelerate the growth of dormant seeds and roots around this door frame. Fair exchange for rapid growth."
 
-"Here." Cassian passed the key through the bars to Perin. "Try it."
+The Law considered. Vitality for growth—within the Coin of Seeds' domain. The scope was small, localized to one door frame. Even remotely, this was possible.
 
-Perin took the key with shaking hands and inserted it into his lock. It turned smoothly. The cell door swung open.
+The Law accepted.
 
-"Free the rest of us," Cassian said. "Quickly and quietly."
+Cassian felt four days of his life flow out through the distant bond. Around Perin's cell door, something stirred.
 
-Perin moved to Mira's cell first, then Torin's, then Cassian's. The locks opened with barely a sound. Within moments, all four stood in the hallway, chains still binding their wrists but cells open.
+Roots erupted from the mortar cracks. Not huge—these were tiny seeds, weeds and moss—but growing with such explosive force that they cracked the stone. Mortar crumbled. Dust fell. The iron brackets holding the door frame to the wall began to shift, pushed out by the expanding plant matter.
 
-"The keys," Mira whispered. "We need the guard's keys to get these chains off."
+"Now," Cassian gasped. "Pull it."
 
-They moved quietly down the hallway. The guard station was around the corner—Cassian could sense it through the gray space. Two guards, both drowsy, near the end of their shift.
+Perin grabbed the door and yanked. The frame came partially free from the wall—not completely, but enough. The door twisted, the lock no longer aligned. He could squeeze through the gap.
 
-Perin picked up a fallen piece of wood from a broken crate. He looked at Cassian, who nodded.
+Perin pushed through, then used his strength to widen the gap further. "Give me the keys to the manacles first. I can't reach yours through the bars if my hands are still chained."
 
-They rounded the corner fast.
+Cassian focused on the guard station down the hall. Two guards, keys hanging on hooks. But he was too weak, too distant from the coins. He couldn't make them come.
 
-The first guard barely had time to look up before Perin's makeshift club caught him across the temple. He crumpled. The second guard opened his mouth to shout, but Torin—moving with surprising speed—grabbed a chair and brought it down on the man's shoulders. The guard stumbled, and Mira finished him with a swift kick to the back of the knee, then an elbow to the head as he fell.
+"We'll have to take them," Cassian said. "Quietly."
 
-Perin grabbed the key ring from the first guard's belt. Within seconds, they'd removed their manacles, wrists finally free.
+Perin nodded and moved silently down the hallway, pressing against the wall. Cassian watched through the gray space as Perin approached the guard station. The carpenter moved with surprising stealth, using shadows, waiting for both guards to look away.
 
-"Now we need to move," Cassian said. "Before someone checks on them."
+One guard stood to stretch. Perin moved—fast, brutal, efficient. An arm around the throat, pressure on the carotid. The guard went limp in seconds. The second guard turned, opening his mouth, but Perin was already there. A knee to the gut, an elbow to the temple. Both guards down before either could shout.
+
+Perin grabbed the keys and ran back, unlocking first Mira's cell, then Torin's, then Cassian's. Within moments all four stood free, manacles removed.
 
 "The north wing," Mira said. "Get your coins and get out."
 
-They moved quickly down the hallway, trying to stay quiet. Torin led them—his cataloging mind providing navigation despite everything. Every turn, every stairwell, every landmark he'd memorized during their capture.
+They moved quickly down the hallway, trying to stay quiet. Torin led them—his cataloging mind providing navigation. Every turn, every stairwell mapped from overheard conversations.
 
-Up the stairs to the second floor. Still quiet. The late hour working in their favor.
+Up the stairs to the second floor. Cassian's breathing was labored, each step harder than the last. The trades had cost him. Four days for the key. Two days for the guard. His vitality was draining.
 
 "North wing is this way," Torin whispered. "Last door on the left."
 
-They moved down the hallway. Cassian's legs burned. His vision blurred. Every step was difficult, but they were making progress.
+They turned the corner into the north hallway and froze.
 
-Behind them, a shout. Someone had found the unconscious guards.
+Four guards stood at the far end, clustered around a doorway. The laboratory door.
 
-"Run!" Mira hissed.
+"They're watching it," Mira breathed. "They knew—"
 
-They sprinted the last thirty feet. Behind them, boots thundered on the stairs.
+"No," Torin said. "Standard night watch. They rotate two guards to the research wing. I heard them discussing the schedule."
 
-The door at the end of the hall was locked.
+"Four guards, not two," Perin said.
 
-Perin threw himself against it—once, twice. On the third impact, the wood splintered. They crashed through into the laboratory.
+"They increased security. After what happened at the warehouse." Torin's voice remained flat. "Logical precaution."
 
-Lanterns blazed. Tables full of instruments. And there, on black velvet—
+Behind them, a shout echoed from the first floor. Someone had found the unconscious guards at the guard station.
 
-Both coins.
+"We're trapped," Mira said. "Guards behind, guards ahead."
 
-Cassian lunged for them, hands outstretched.
+Cassian's mind raced, but thinking was hard. The fragmentation, the vitality drain, everything was making it difficult to focus. Four guards ahead. More coming from behind. And he was barely standing.
+
+"I can't fight four guards," he said quietly. "Not remotely. Not in this condition."
+
+"Then we fight them the old-fashioned way." Perin hefted his piece of wood. "It's four against four."
+
+"You'll die," Cassian said. "They have swords. We have desperation and a broken chair leg."
+
+The boots were getting closer. They had maybe thirty seconds before guards reached the second floor.
+
+"Window," Torin said, pointing to a narrow window in the hallway. "Fire escape on the exterior wall. Leads to the roof."
+
+"And then what?" Mira demanded.
+
+"Then we improvise." Cassian stumbled to the window, fumbling with the latch. His hands were shaking. Behind them, guards were shouting, organizing, climbing the stairs.
+
+The window opened. Cold air rushed in. Outside, an iron fire ladder clung to the brick wall, leading up.
+
+"Go!" Cassian pushed Mira through first. Then Torin. Then Perin.
+
+He pulled himself through just as guards rounded the corner. One of them shouted and pointed.
+
+Cassian climbed, arms burning, legs barely responding. Up to the roof. The others were already there, pulling him over the edge.
+
+The roof was flat tar and gravel, surrounded by a low wall. Three stories up. And on the far side—
+
+"The laboratory window," Torin said, pointing. "Third window from the corner. That's where your coins are."
+
+The laboratory was on the second floor, but its north window faced a different section of roof—a lower level, maybe ten feet down from where they stood.
+
+"We can jump to that roof section," Mira said. "Then break the window and—"
+
+Heads appeared at the fire escape. Guards climbing up.
+
+"No time for discussion." Cassian ran for the edge and jumped.
+
+For a terrifying moment, he was airborne. Then he hit the lower roof hard, rolling, pain shooting through his already battered body. The others landed around him—Mira graceful, Torin mechanical, Perin with a pained grunt.
+
+The laboratory window was right there. Cassian could see the coins inside, resting on their cushion.
+
+He grabbed a loose brick from the roof's edge and hurled it through the glass.
+
+Cassian dove through the broken window, glass shards catching his clothes, tearing skin. He hit the laboratory floor hard, rolled, and came up reaching.
+
+There—on the black velvet cushion—both coins.
+
+His fingers closed around them.
 
 The moment his fingers touched the Coin of Heads, power flooded back like a dam breaking. The bond snapped taut, fully reconnected, and suddenly he was complete again. The gray space opened around him in full clarity. Value threads blazed throughout the room.
 
-He grabbed the Coin of Seeds with his other hand, and growth energy surged through his battered body. Not healing—he didn't have time for that—but potential. The promise that healing could happen. That growth could resume.
+He grabbed the Coin of Seeds with his other hand, and growth energy surged through his battered body. Not healing—he didn't have time for that—but strength. Vitality. The promise that he could keep moving, keep fighting.
+
+The fragmentation in his mind began to clear. Not completely—the damage from holding twenty-seven tethers would take time to fully heal—but enough. He could think again. Plan. Act.
 
 "Finally," he breathed.
 
-Guards crashed through the door behind them.
+The laboratory door burst open. Six guards poured through, weapons drawn.
+
+And Cassian smiled.
+
+Now he had options.
 
 Cassian turned, both coins burning in his palms. Six guards filled the doorway, clubs and swords drawn. He entered the gray space fully, seeing them as bundles of value—their strength, their will, their consciousness.
 
@@ -356,11 +400,15 @@ Cassian respected that. "Then I'm sorry."
 
 He pulled from the value of her wakefulness—a small theft, quick and precise. The woman's eyes rolled back and she collapsed, unconscious.
 
-It cost him three days of his life. Painful, but not devastating.
+It cost him only one day now. With the coins back in his hands, trades were efficient again. Clean. Precise.
 
-"Window!" Mira pointed to the far wall. "Now!"
+Mira, Torin, and Perin climbed through the broken window from the roof, joining Cassian in the laboratory. The five bribed guards were already heading for the door, eager to collect their payment and disappear before questions were asked.
+
+"Window!" Mira pointed to a different window—the one facing the alley. "We need to move before more guards come!"
 
 They ran to it. Cassian looked down. Twenty feet to the alley below. Cobblestones. A potentially deadly drop.
+
+Shouts echoed from the hallway. More guards coming.
 
 "Wait," he said, his mind working quickly. The coins were back in his hands. He could think clearly again, see solutions.
 
@@ -404,21 +452,37 @@ They ran into the maze of alleys, leaving the Merchant's Relief Society facility
 
 "Where do we go?" Perin gasped as they rounded a corner.
 
-"Anywhere but here," Cassian managed. "Split up. Meet at—" He thought quickly, his mind sharper now. "The old mill outside the eastern gate. Tomorrow night, two hours after sunset."
+"Split up," Cassian said. His mind was working again, sharp and clear despite the physical exhaustion. "They'll be looking for a group of four. Alone, we can disappear."
 
-"That's your plan?" Mira demanded. "Split up and hope we all survive?"
+"And regroup where?" Mira demanded.
 
-"Better than staying together and leading them straight to us." Cassian looked at each of them. "Two hours after sunset, tomorrow. The old mill. If anyone doesn't make it, we wait one more night. After that, we assume the worst."
+"The old mill outside the eastern gate. Tomorrow night, two hours after sunset." Cassian grabbed Perin's shoulder, looking him in the eye. "And you go to Elena. Get her somewhere safe. That's your only job. Forget the Unhollow. Forget the resistance. Keep your daughter alive."
 
-She nodded, grim but understanding.
+Perin's face twisted with emotion. "But—"
 
-They reached an intersection and scattered—Mira disappearing south, Perin east, Torin west. Cassian stumbled north, clutching both coins, feeling them pulse with heat against his chest.
+"That's an order." Cassian released him. "The rest of us will handle the next steps. You protect her. Understood?"
 
-He'd reclaimed his power. They'd escaped. And he'd done it without hemorrhaging his own vitality this time.
+After a moment, Perin nodded. "Understood."
+
+"If anyone doesn't make it to the mill," Cassian continued, "we wait one more night. After that, we assume capture or worse."
+
+They all nodded.
+
+They reached an intersection and scattered—Mira disappearing south into the merchant quarter where she knew every alley, Perin east toward where Elena was hiding, Torin west toward the docks. 
+
+Cassian stumbled north, clutching both coins, feeling them pulse with heat against his chest.
+
+He'd reclaimed his power. They'd escaped. But the cost was adding up—six days of his life spent in trades tonight. Not catastrophic, but not nothing either.
+
+And Perin was right. They hadn't accomplished anything. Eight people were still in the Hollow's hands. The Society now knew his capabilities. And somewhere, an eight-year-old girl was hiding alone, traumatized by watching her father dragged away in chains.
 
 Behind him, more shouts. More boots. The hunt was on.
 
-Cassian ran, vanishing into the shadows, already planning his next move.
+Cassian ran, vanishing into the shadows. His next move was already forming in his mind.
+
+He'd lost this round. But the game wasn't over.
+
+Not yet.
 
 ---
 
@@ -444,16 +508,32 @@ She looked out the window at the dark city. Somewhere out there, Cassian was run
 
 ---
 
-Cassian collapsed in an alley three blocks away, lungs burning, legs giving out. He clutched both coins to his chest, feeling them pulse in sync with his racing heart.
+---
+
+Cassian collapsed in an alley four blocks away, lungs burning, legs giving out. He clutched both coins to his chest, feeling them pulse in sync with his racing heart.
 
 He'd escaped. They'd all escaped.
 
-But eight people they'd freed were back in the Hollow's hands. The unconscious guards would wake with questions. And the Society now knew he could use the coins remotely, even if the connection was weak.
+But at what cost?
 
-*We're still losing,* Cassian thought. *But at least this time I didn't lose too much of myself.*
+Six days of his life spent on trades. Eight people back in the Hollow's hands, facing torture to "convince" them to return voluntarily. An eight-year-old girl traumatized and alone. And the Society now knew more about his powers and limitations.
 
-The coins burned against his skin, still connected, still his.
+The fragmentation from holding the tethers was fading but still there, like cracks in glass. His body was battered. His resources were dwindling.
 
-He could work with this.
+*We're losing,* Cassian thought. *We're still losing.*
 
-He had to.
+But the coins burned against his skin, still connected, still his. And his mind was clearing. He could think. Plan. Adapt.
+
+The Hollow expected him to be desperate. To throw himself at impossible rescues. To trade away pieces of himself until there was nothing left.
+
+Maybe it was time to stop being predictable.
+
+Cassian pushed himself upright, wincing at the pain. He had one day to rest, to plan, to figure out what came next.
+
+And then, at the old mill, two hours after sunset, they would regroup.
+
+The Unhollow had lost this round.
+
+But the game wasn't over.
+
+Not yet.
