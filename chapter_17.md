@@ -208,7 +208,11 @@ He gestured to a chair facing his own. When Mira didn't move, Veylin shoved her 
 
 "Yes. Both of them."
 
-Draven smiled, and it was genuinely pleased. "Perfect."
+Draven smiled, and it was genuinely pleased. "Perfect. Let him keep them for now. He can't use them against us if he doesn't know where to find us. And when he does come—and he will—he'll bring them right to me. Willingly."
+
+Veylin's expression tightened. "You're certain he'll come for her?"
+
+"She's his ally. His companion. He risked everything to save her brother—of course he'll come for her." Draven stood, walking slowly around Mira's chair. "We tried force. It didn't work—he escaped with both coins. Now we try leverage. Make him desperate enough, emotional enough, and he'll trade anything. Even the coins."
 
 Mira glared at him despite her exhaustion. "If this was your plan, it's a terrible one. Cassian will come for me."
 
@@ -234,19 +238,17 @@ Mira's breath caught. "You're lying."
 
 "Even if that's true," Mira said, "he'd never help you."
 
-"Help me? No, probably not." Draven smiled. "But you could help him. Cassian showed you how to access the coins' power, didn't he? Let you train with them. But he only taught you the basics. If you truly understood their potential, if you knew their secrets, you could restore Torin completely. Save your brother without asking Cassian to sacrifice anything more."
+"Help me? No, probably not." Draven smiled. "But I could help you. I know the secrets of the Coin of Seeds—secrets Cassian hasn't discovered yet. Or perhaps he has, and he's simply unwilling to pay the price." He leaned forward. "Bring me the coins, Mira. When Cassian comes for you—and he will—convince him to trade them for your freedom. Both coins, willingly surrendered. And in exchange, I'll restore your brother completely. Make him whole. Return everything he lost."
 
-Mira's mind was racing. She had felt it—the connection to Cassian's power when he let her train with the coins. The strange resonance, the way the coins' energy seemed to flow through her when he was using them nearby. 
+"You want me to betray him," Mira said flatly.
 
-Cassian had taught her to perceive value, to sense the gray space. But he'd held back, kept her at the edges of true understanding.
+"I want you to save your brother." Draven's voice was reasonable, patient. "Cassian has had the Coin of Seeds for how long? And Torin is still broken. Do you really think he's going to restore him fully? Or will he keep your brother in this half-alive state forever, just functional enough to be useful?"
 
-What if there was more? What if he'd been protecting secrets she needed to save Torin?
+Mira's stomach twisted. She wanted to argue, but the doubt was already there.
 
-"All I need," Draven continued, his voice reasonable and calm, "is for you to understand how that connection works. How to channel the power more deeply. And in exchange, I'll teach you what you need to know about the Coin of Seeds. How to use its restoration ability. How to accelerate growth not just in plants, but in living minds. How to make Torin whole."
+"What do you really want with the coins?" she asked. "Why do you need them?"
 
-"And what do you get out of it?" Mira demanded.
-
-"Information. Understanding." Draven's smile widened. "You see, Mira, I'm collecting the coins. Cassian has two now—the Coin of Heads and the Coin of Seeds. I have my own coin." He said, placing a hand gently over the locket hanging from his neck. "But there are seven total, seven gems, scattered across the kingdoms."
+"Information. Power." Draven's smile widened. "You see, Mira, I'm collecting them. Cassian has two now—the Coin of Heads and the Coin of Seeds. I have my own coin." He placed a hand gently over the locket hanging from his neck. "But there are seven total, seven gems, scattered across the kingdoms."
 
 He stood, walking to a shelf where something rested beneath a black cloth. He pulled the cloth away, revealing an object that made Mira's breath catch.
 
@@ -258,7 +260,11 @@ He turned back to her. "When I reunite all seven coins with the crown and place 
 
 "You're insane," Mira breathed.
 
-"Visionary," Draven corrected. "The difference is success. And I will succeed, Mira. With or without your cooperation. But if you help me understand how the connection works—how you access the coins' power when Cassian uses them—I'll teach you how to save your brother completely. A fair trade."
+"Visionary," Draven corrected. "The difference is success. And I will succeed, Mira. With or without your cooperation. But with you? It becomes simple. Cassian trades the coins for your life. I get what I need. You get your brother back, whole and healthy. Everyone wins."
+
+"Except the world," Mira said. "If you get all seven coins and the crown—"
+
+"The world gets peace. Order. An end to suffering." Draven's voice was fervent. "Do you know how many people become Hollow every year? How many starve? How many die in wars over resources I could simply provide? The current system is broken, Mira. I'm offering to fix it."
 
 Mira wanted to spit in his face. Wanted to refuse categorically.
 
@@ -270,7 +276,7 @@ But the image rose unbidden in her mind—Torin, whole and healthy. Smiling. Lau
 
 Veylin grabbed Mira's arm and pulled her toward a side door. As Mira was led away, Draven's voice followed her.
 
-"Oh, and Mira? When Cassian comes for you—and he will—ask yourself this: Has he been completely honest with you about the coins' capabilities? Or has he been keeping secrets because he doesn't trust you enough to share them?"
+"Oh, and Mira? When Cassian comes for you—and he will—remember this: He's had the power to restore your brother for weeks. He's chosen not to. Ask yourself why that is."
 
 The door closed behind her, and Mira was pushed into a small but comfortable room. A bed. A washbasin. A window—barred, but at least there was light.
 
@@ -286,127 +292,25 @@ And more importantly—had Cassian known this was possible and simply not told h
 
 Mira touched her wrist where she could still feel the faint echo of the coins' presence. Power, distant but present. Connected to Cassian somehow, to the coins, to possibilities she'd never imagined.
 
-*What have I gotten myself into?* she thought.
+She closed her eyes and saw two futures branching before her.
 
-But she already knew the answer.
+In one, Torin remained broken—functional but hollow, cataloging facts without understanding them, never again feeling joy or curiosity or love. Never holding Elena and knowing why it mattered.
 
-Whatever it took to save Torin. Even if it meant making a deal with a monster.
+In the other, he smiled. He laughed at her jokes. He understood that he loved his daughter, and felt it, truly felt it.
 
----
+The price was betrayal. But wasn't love supposed to justify anything?
 
-King Aldric received Cassian in his private study rather than the throne room. It was past midnight, but the King was still fully dressed, pacing by the window when Cassian entered.
+She didn't know anymore.
 
-"You look terrible," Aldric said bluntly.
-
-"I feel worse." Cassian slumped into a chair, the coins still burning in his palms. "Thank you for sending the guard. Without them, we'd all be captured or dead."
-
-"And now my council is in an uproar." The King poured two glasses of wine, handing one to Cassian. "Half think I overstepped my authority by raiding a 'legitimate charitable organization.' The other half think I didn't go far enough. The merchant's guild is threatening to withdraw their financial support. And the Society is already spreading the narrative that you're a criminal who attacked innocent people."
-
-Cassian took a sip of wine. It helped, slightly. "I'm sorry for the trouble."
-
-"Don't be. I knew what I was doing." Aldric sat across from him. "We're at war, even if no one wants to call it that. Draven Kane is moving against us systematically, and we've been too worried about merchant politics and guild approval to fight back properly."
-
-"We lost Mira," Cassian said quietly.
-
-"I heard. Captain Drenneth is investigating, but the trail is cold. Whoever extracted her knew what they were doing." The King's expression was grim. "Do you know why Draven would take her specifically?"
-
-"The blood bond." Cassian stared into his glass. "When I formed the bond with her to save Torin, it created a connection. She can access some of the coins' power—I don't fully understand how yet. But Draven must know about it. He wants to study it. Understand it. Maybe replicate it."
-
-"Can he sever your bond to the coins? Take them for himself?"
-
-"I don't know." Cassian looked down at the two coins in his free hand—the Coin of Heads and the Coin of Seeds. The Coin of Hands was back in his room, hidden. "The bond feels permanent, but I don't know its limits. If Draven has Mira, he has time to experiment. To test it. To find weaknesses."
-
-The King was quiet for a long moment, his fingers drumming on the armrest. "What will you do?"
-
-"Find her. Get her back."
-
-"And if it's a trap?"
-
-"It's definitely a trap." Cassian met the King's eyes. "But I'm going anyway."
-
-"Then you're a fool."
-
-"Probably." Cassian stood, wincing at the movement. "But she's one of mine. She risked everything to help me save her brother. I don't leave people behind."
-
-King Aldric studied him for a long moment, his expression unreadable. Then he nodded slowly. "You'll need resources. Intelligence. Support."
-
-"I'll need to rest first. And think clearly." Cassian tucked the coins away carefully. "But yes. When I'm ready, I'll need help."
-
-"You'll have it," the King promised. "But Cassian—be smart about this. Draven is playing a longer game than either of us fully understands. He let you escape. He let you reclaim the coins. And now he has Mira. This is all part of some larger plan."
-
-"I know." Cassian moved toward the door. "But I can't just abandon her."
-
-"I'm not asking you to. I'm asking you to think strategically before you act." The King's voice was gentle but firm. "In war, sometimes you have to make impossible choices. Sacrifice one person to save hundreds. Let the enemy think they're winning while you position your real attack. This is how wars are won—by making hard decisions and living with the consequences."
-
-Cassian paused at the door. "And what if I can save her and stop Draven? What if I don't have to choose?"
-
-"Then you'll be a better man than me," Aldric said quietly. "But don't let hope blind you to reality. Draven wants you to come after her. Make sure when you do, you're walking into a trap on your terms, not his."
-
-Cassian nodded and left the study.
-
-The palace hallways were quiet, lit by oil lamps that cast long shadows. A servant showed him to a guest room—comfortable, with a proper bed and a washbasin. Perin had already been given a room nearby. Torin was somewhere else, being examined by the royal physician.
-
-Cassian locked the door and collapsed onto the bed, every muscle aching.
-
-Six days of his life spent on trades tonight. His body battered from interrogation and escape. His mind still fractured from holding the tethers. And Mira was in Draven's hands.
-
-The coins burned against his chest, a constant reminder of power and cost.
-
-*I will find you,* Cassian thought, directing the promise toward wherever Mira was. *I will get you back. Whatever it takes.*
-
-But as exhaustion pulled him toward sleep, a darker thought surfaced.
-
-What if the King was right? What if rescuing Mira was exactly what Draven wanted? What if she was bait for a trap so perfect that walking into it meant losing everything?
-
-And what if Cassian was going to walk into it anyway, because leaving her behind would mean losing something worse than the coins, worse than his life?
-
-Himself.
+Mira pulled the thin blanket over herself and tried to sleep. But her dreams, when they came, were filled with Torin's lost smile and Draven's reasonable voice, offering her the one thing she wanted most.
 
 ---
 
-In her underground room, Mira lay awake on the bed, staring at the barred window.
-
-Somewhere above, Cassian was free. Safe, probably. He had the coins back. The King's forces had rescued him.
-
-But he would come for her. She knew him well enough to know that. He wouldn't leave her behind.
-
-And when he did, Draven would be ready.
-
-*I'm bait,* she realized. *The whole thing—the capture, the comfortable room, Draven's offer—it's all to draw Cassian in.*
-
-But the terrible part was that Draven's offer was real. She could feel it in her bones. The blood bond did give her access to power. And if the Coin of Seeds could truly restore damaged minds...
-
-Mira touched her wrist, feeling the faint echo of the coins' power in the distance.
-
-*I could save Torin,* she thought. *Really save him. Make him whole.*
-
-But at what cost? Teaching Draven how her connection to the coins worked? Helping him understand what Cassian had shown her?
-
-She closed her eyes, trying to silence the temptation.
-
-But Torin's face—mechanical, damaged, broken—rose in her mind. And beside it, the memory of who he'd been. Brilliant. Warm. Alive.
-
-*What would I give to save him?* she wondered. *How far would I go?*
-
-She didn't know the answer.
-
-And that uncertainty terrified her more than Draven, more than imprisonment, more than any torture Veylin could devise.
-
-Because it meant she might actually consider it.
-
-Mira pulled the thin blanket over herself and tried to sleep.
-
-But her dreams, when they came, were filled with choices she didn't want to make and prices she couldn't afford to pay.
-
----
-
-The next morning, Cassian woke to sunlight streaming through the window and someone knocking on his door.
+Cassian woke to sunlight streaming through the window and someone knocking on his door.
 
 "Master Cassian?" A servant's voice. "The King requests your presence for breakfast."
 
 Cassian sat up, every muscle protesting. The coins were still tucked safely in his shirt. Six days gone, but at least he was alive.
-
-"I'll be right there," he said.
 
 He washed quickly, changed into fresh clothes the palace had provided, and went downstairs to the King's private dining room.
 
@@ -416,28 +320,108 @@ King Aldric was already there, along with Captain Drenneth. They both looked exh
 
 Drenneth answered. "Perin's daughter. Elena. She made it to the palace gates around dusk, demanding to see the King. Took three guards to calm her down enough to make sense of what she was saying."
 
-"Elena told you where we were?"
+"Elena?" Cassian's chest tightened. "Is she—"
 
-"She saw which direction the Society guards took you after the capture," the King said. "Followed at a distance, saw them take you into the Relief Society facility. Then she ran here as fast as her legs could carry her." He shook his head with something like admiration. "Brave girl. Terrified, but she wouldn't leave until we promised to send help."
+"Safe. Reunited with her father in the east wing," Drenneth said. "She saw which direction the Society guards took you after the capture. Followed at a distance, saw them take you into the Relief Society facility. Then she ran here as fast as her legs could carry her."
 
-"Where is she now?" Cassian asked.
+The King shook his head with something like admiration. "Brave girl. Terrified, but she wouldn't leave until we promised to send help."
 
-"Reunited with her father," Drenneth said. "First thing we did after bringing you all back was let them see each other."
+Cassian felt a weight lift slightly. Elena was safe. Perin had his daughter back. Small victories.
 
-Cassian felt a weight lift slightly. Elena was safe. Perin had his daughter back.
+"What about Mira?" Cassian asked. "Any word?"
 
-Small victories.
+"Nothing," Drenneth said grimly. "The trail is cold. Whoever extracted her knew what they were doing."
 
-In the hallway, he leaned against the wall, closing his eyes.
+"I'm going after her," Cassian said.
 
-Eight-year-old girls hiding in cellars. Families torn apart. People captured and converted. And Mira, somewhere in Draven's hands, facing temptations and tortures Cassian could only imagine.
+The King and Drenneth exchanged a glance.
 
-This was the cost of fighting back. This was what resistance looked like.
+"We need intelligence first," Aldric said carefully. "Information about where she's being held, how many guards—"
 
-And they were losing.
+"I don't have time for that." Cassian stood abruptly. "Every hour I wait, Draven has more time to break her."
 
-But Cassian clutched the coins tighter, feeling their heat, their power, their terrible promise.
+"Which is exactly what he wants," the King said. "He's baiting you, Cassian. Make you desperate enough and you'll walk into whatever trap he's prepared."
 
-*Not yet,* he thought. *We're not done yet.*
+"I know." Cassian met his eyes. "But I'm going anyway."
 
-The game was just beginning.
+"Not without a plan, you're not." The King's voice hardened. "I didn't risk my political standing rescuing you just to watch you throw your life away on a suicide mission. You don't know where she is. You don't know what defenses he has. You're exhausted, battered, and operating on emotion instead of strategy."
+
+"Then what do you suggest?" Cassian's frustration bled through. "I sit here and wait? Have tea while Draven turns her against me?"
+
+"I suggest you rest. Recover. Let Drenneth's intelligence network do its job." The King stood. "And if you still insist on going after her—and I suspect you will—at least do it when you're strong enough to have a chance of success."
+
+Cassian wanted to argue. Wanted to shout that every minute mattered, that waiting was surrender.
+
+But the King was right. He was barely standing. Rushing in now would accomplish nothing except getting himself killed or captured.
+
+"One day," Cassian said, his voice tight. "I'll give you one day to find something. After that, I'm going. With or without your help."
+
+The King held his gaze for a moment, then nodded slowly. "Fair enough. One day."
+
+Cassian turned and left the dining room, his frustration simmering. His body ached, his head pounded, but his mind was already racing.
+
+He made his way back to his guest quarters and locked the door.
+
+*Think,* he told himself. *There has to be a way to find her. To reach her.*
+
+He couldn't just wait for intelligence. Couldn't sit idle while Mira faced Draven's manipulations. The man was too clever, too patient. He'd break her or turn her, and Cassian would lose her either way.
+
+But how could he find her when he didn't even know where she was?
+
+Cassian entered the gray space, desperate for any insight. Value threads blazed around him—the expensive furnishings in the room, the coins in his hands, the distant pulse of life throughout the palace.
+
+And then, faintly, something else.
+
+A thread. Thin, barely perceptible, stretching away from the coin and into the distance. Not like the bond to the coins themselves—that was bright, strong, constant. This was different. Fragile. So faint he'd never noticed it before. Like a spider's silk connecting to...
+
+*To what?*
+
+Cassian focused on the thread, following it with his perception. It extended north. Down through the city. Beyond the walls. Into—
+
+The thread faded, too distant to track clearly.
+
+But it was there. Something connected to the Coin of Heads. Something—or someone—far away.
+
+Cassian's eyes snapped open. He sat up, staring at the coin in his hand.
+
+*Mira.*
+
+He'd taught her to access the coins' power. Showed her how to perceive value, enter the gray space. And in doing so, he'd created a connection—her mind learning to resonate with the same power he wielded.
+
+What if that connection was more than just shared knowledge? What if it was a bridge?
+
+The Coin of Heads governed wisdom. Perception. Understanding. He'd been using it to perceive value—to see the worth in objects, to understand the patterns of exchange. But the coin's domain was larger than that. It governed *heads*. The seat of thought. Consciousness. Minds themselves.
+
+What if perception didn't just mean seeing value in things, but understanding *minds*?
+
+His heart pounded. He'd never tried anything like this. Didn't even know if it was possible.
+
+But he had to try.
+
+Cassian held the Coin of Heads in both palms and closed his eyes. He entered the gray space fully, letting his perception expand as far as it would go.
+
+But this time, instead of looking for connection. For the thread that linked him to someone else who knew the coin's touch.
+
+*Mira,* he thought, pushing his awareness along that fragile thread. *Can you hear me?*
+
+Nothing.
+
+The thread wavered, barely there. The distance was too great, his understanding too incomplete.
+
+Cassian pushed harder, trying to force the connection, but it slipped away like water through his fingers.
+
+*This isn't about force,* he realized. *The coin governs wisdom, understanding. Not coercion.*
+
+He relaxed his grip, let his desperate need fade into calm focus. The Coin of Heads wasn't a weapon to force his will on others. It was a tool for perceiving truth, for understanding what already existed.
+
+The thread was already there. The connection already made. He just needed to see it clearly.
+
+Cassian took a slow breath and tried again. Not pushing. Not demanding. Simply... opening himself to what the coin could show him.
+
+*Mira. If you're there, if you can sense this, I'm reaching out. Just try to reach between minds that share the same power.*
+
+For a long moment, nothing.
+
+Then—faint, like an echo across vast distance:
+
+*...Cassian?*
