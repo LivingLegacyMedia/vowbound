@@ -1,585 +1,357 @@
-# Chapter 20: The Price of Freedom
+# Chapter 20: The Balance Shifts
 
-The old mill stood silent under a blood-red sunset.
+The power flowing through Cassian was unlike anything he'd ever experienced.
 
-Cassian approached alone, feeling the weight of 200 connections thrumming through the Coin of Seeds. Energy. Vitality. All given freely by people who'd chosen to trust him.
+Thousands of connections through the Coin of Seeds—not just the eighty who'd committed from the start, but hundreds more accepting the trade in real-time as they watched him nearly die. Their vitality poured into him like a river, healing his injuries, flooding his muscles with supernatural strength.
 
-It felt like carrying fire in his chest—warm, powerful, dangerous. One wrong move and he could burn out completely, drain everyone who'd offered their strength.
+Draven recovered from being thrown, his expression shifting from shock to rage. "Clever trick. But it won't be enough."
 
-*Don't waste this,* he told himself. *They chose to give. Make it count.*
+He drew deeper on his own network—ten thousand Hollow across the kingdom, all feeding him power involuntarily. The Coin of Oxen blazed with authority, granting him strength that went beyond human limits.
 
-The mill door stood open. Lamplight flickered inside.
+They clashed again.
 
-Cassian stepped through.
+This time, Cassian matched him. Fist met fist with impacts that cracked the ground. They moved across the plains in a blur, each strike carrying enough force to shatter stone. The watching crowd scattered back, giving them space.
 
----
+But Cassian could feel the strain. He was channeling thousands of connections—managing the flow of energy from willing volunteers, distributing it through his body, preventing any one person from being drained too far. It required intense concentration. One mistake and he could kill someone by taking too much.
 
-Draven Kane sat at a table in the center of the vast grinding floor, a bottle of wine and two glasses before him. He looked exactly as he had at the aqueduct—handsome, composed, utterly in control. The golden locket gleamed at his throat.
+Draven had no such concerns. He simply *took* from his network without restraint, pushing the cost onto enslaved victims who had no choice but to bear it.
 
-"Cassian." Draven's smile was genuine. "I'm glad you came. Please, sit."
+"You're holding back," Draven taunted, driving a kick that Cassian barely blocked. "Afraid you'll hurt your precious volunteers. I have no such weakness. I can drain my network to nothing if needed. Can you say the same?"
 
-Cassian remained standing. "Where's Mira?"
+He was right. Cassian felt someone in the crowd flagging—a young woman who'd offered too much too fast. He had to reduce her connection, slow the flow, which meant slightly less power available.
 
-"Safe. Comfortable. Learning what it means to serve a higher purpose." Draven poured wine into both glasses. "She's adjusting remarkably well to the binding. I expected her to fight it...but she seems to understand the necessity."
-
-Through the dampened thread, Cassian felt Mira's presence—distant, muted, but alive. The connection pulsed with something he couldn't quite read. Not fear. Not resignation. Something else.
-
-"You didn't come here to negotiate," Cassian said. "You came here to gloat."
-
-"No. I came here to offer you one final chance." Draven pushed one of the wine glasses toward the empty chair. "Sit. Drink. Let's discuss the future like civilized men."
-
-"The future where you collect all seven coins and reshape reality according to your vision?"
-
-"The future where no one has to suffer unnecessarily." Draven's expression remained pleasant. "The future where the Law of Balance serves humanity instead of enslaving it. Where people don't have to choose between starvation and selling their souls."
-
-"By making them hollow first."
-
-"By offering them peace." Draven stood, moving to the window. "You think I'm a monster. I understand. From your perspective, I take people's humanity. But from mine, I'm offering them liberation from the burden of emotion, memory, fear. The Hollow don't suffer, Cassian. They don't grieve. They don't despair. They simply *are*."
-
-"They're not people anymore."
-
-"They're free of the pain that makes people destroy themselves." Draven turned back. "Your father understood that, eventually. In our final conversation, before I broke him, he admitted that the world would be better if I succeeded. He just couldn't bring himself to support the cost."
-
-Cassian's hands clenched. "My father fought you because you're wrong."
-
-"He fought me because he was weak." Draven's voice was gentle, almost sympathetic. "Clinging to outdated notions of individual agency and moral choice. Unable to accept that sometimes the greater good requires sacrifice. That sometimes peace requires surrender."
-
-"The King's father said the same thing you did," Cassian said quietly. "That the world needed fixing. That the ends justified the means. Right before you killed him."
-
-Draven's expression flickered—the first crack in his composure. "King Aldric told you."
-
-"He told me his father challenged you to single combat. That you broke him deliberately. Left him to die slowly."
-
-"I gave him a warrior's death. He demanded single combat—I obliged." Draven's voice hardened. "And he learned what everyone learns eventually: conviction without power is just noise. Righteousness without strength is just martyrdom. Your father learned. The King learned. And now you'll learn."
-
-Cassian felt the connections through the Coin of Seeds pulse stronger. 200 people, offering their energy. Waiting for him to use it.
-
-"You're right about one thing," Cassian said. "Conviction without power is useless. That's why I'm not here to debate philosophy."
-
-He pulled both coins from his pockets, holding them high.
-
-"I'm here to challenge you. Single combat. Just like you fought the King's father. Just like you fought mine. Except this time, the outcome will be different."
-
-Draven stared at him, then laughed—genuinely amused. "You? Fight me? Cassian, I have the Coin of Oxen. It grants me strength beyond any mortal capability. You have abstract perception and the ability to grow plants. This isn't a contest."
-
-"Then it should be easy for you to accept." Cassian met his eyes. "Unless you're afraid."
-
-The laughter died. Draven's expression went cold.
-
-"You want to die like your father? Fine." He touched the locket at his throat. "I'll even make it fair. No tricks. No Hollow interference. Just you, me, and the Law witnessing our contest. When I win—and I will win—you surrender both coins. Agree to serve my vision. Help me find the remaining three medallions."
-
-"And when I win," Cassian said, "you release Mira from her binding. Surrender your coins. Disband the Hollow network."
-
-"Agreed." Draven's smile returned. "The Law recognizes this bargain. Single combat. The winner's terms become binding on the loser. No escape. No renegotiation."
-
-Cassian felt the Law settle over them like a weight. The bargain was sealed. Win or lose, one of them would control the outcome.
-
-"There's one more term," Cassian added. "The fight happens here, now. You can't leave until it's finished. Can't call on your network for support. Can't interrupt the combat for any reason."
-
-Draven's eyes narrowed slightly—sensing the trap but not seeing its shape. "Accepted. Though I don't need my network to defeat you."
-
-"Good." Cassian set the coins down carefully. "Then let's begin."
+Draven sensed it immediately and pressed the advantage. A brutal combination of strikes that drove Cassian back, each one harder than the last.
 
 ---
 
 *Across the city, Torin's team reached Veylin's warehouse.*
 
-*Three entry points. Simultaneous breach. Captain Drenneth's soldiers moved first, subduing guards with quick, brutal efficiency.*
+*The building was heavily guarded—twenty Hollow standing watch. But Drenneth's soldiers moved with professional efficiency, subduing them quickly.*
 
-*Torin entered through the east entrance, moving through darkness with purpose. He could sense the network here—dense, oppressive, hundreds of tethers flowing through the building like invisible veins.*
+*Torin entered through the eastern door, Perin close behind. They descended to the lowest level where Veylin waited.*
 
-*Veylin would be on the lowest level. Closest to the connections.*
-
-*He descended.*
-
----
-
-Draven removed his coat, rolling up his sleeves. The movement was casual, confident. "I'll try to make this quick. For both our sakes."
-
-Cassian didn't respond. He reached out through the Coin of Seeds, touching the web of connections to the townspeople. 200 people who'd offered their strength.
-
-*I'm about to use what you've given,* he sent along those threads. *Trust me.*
-
-And they did. He felt their acceptance, their willingness. Energy began flowing into him—not all at once, but in measured streams. Vitality. Strength. The accumulated power of people who'd chosen to support him.
-
-Cassian's muscles flooded with heat. His exhaustion evaporated. He felt faster, stronger, more alive than he ever had.
-
-Draven charged.
-
-The Coin of Oxen made him impossibly fast. One moment he was five paces away. The next, his fist was driving toward Cassian's face with enough force to shatter bone.
-
-Cassian moved.
-
-Enhanced by the channeled energy, his body responded with unnatural speed. He twisted aside, felt Draven's fist pass close enough to stir his hair. The impact hit the wall behind him with a crack like thunder, punching through solid wood.
-
-Draven spun, eyes wide with surprise. "How—"
-
-Cassian didn't give him time to finish. He drove forward, channeling the borrowed strength into a strike aimed at Draven's ribs. Connected. Felt bone flex under the impact.
-
-Draven staggered back, genuinely shocked.
-
-"You're not the only one who can draw on others' strength," Cassian said. "But mine was freely given."
-
-Understanding dawned in Draven's eyes. Then rage.
-
-He attacked again—faster, harder, using the Coin of Oxen's full power. The grinding floor became a blur of motion. They moved around the mill like dancers, each strike carrying enough force to kill.
-
-But Cassian matched him. Every blow Draven threw, Cassian evaded or blocked, drawing on the wellspring of energy the townspeople provided. They weren't just giving him strength—they were sustaining him, keeping him fast enough to survive.
-
-"Impossible," Draven snarled, driving a kick toward Cassian's knee. "You shouldn't be able to—"
-
-Cassian caught the kick, twisted, threw Draven into a support pillar hard enough to crack the wood. "That's the difference between us. You take power through fear. I receive it through trust."
-
-Draven rose, blood on his lip. For the first time, doubt flickered across his face.
-
-Then his expression hardened. "If matched strength won't work, I'll simply outlast you. Those people giving you energy—how long can they sustain it? An hour? Two? I can fight for days without rest."
-
-He was right. Cassian could already feel the strain on the connections. The townspeople were giving freely, but they were still human. Eventually, they'd exhaust themselves.
-
-He needed to end this fast.
-
----
-
-*Torin found Veylin on the third basement level, surrounded by twenty Hollow guards.*
-
-*She looked up as he entered—recognition flashing across her empty eyes. "You. The broken one. Cassian severed you from the network."*
+*She looked up as they entered—a woman in her fifties, eyes empty but aware. "You. The broken one. Come to sever me?"*
 
 *"Yes."*
 
-*"Why are you here?"*
+*"It won't work. Even if you disconnect my network, Kane will simply rebuild it. The Hollow need structure. Need someone to organize them. Without me, they'll just beg to reconnect elsewhere."*
 
-*"To sever you."*
+*"Maybe," Torin said. "But even temporary disruption helps."*
 
-*The guards moved to intercept, but Torin was faster. The partial restoration had left him changed—emotions diminished, but physical capabilities enhanced. He moved through them like water through cracks, not fighting but flowing. By the time they turned, he was already past them, standing before Veylin.*
+*He reached out with the technique Cassian had taught him—finding the tether that connected Veylin to Draven's central reservoir. The connection pulsed with stolen vitality, feeding from 800 Hollow through her.*
 
-*She reached for her sword—but Torin's hand closed over hers.*
+*Torin cut it.*
 
-*"I remember you," he said quietly. "I remember you offering me peace. Telling me emptiness was better than pain. I believed you. And you were wrong."*
-
-*He found the tether—the connection between Veylin and the central reservoir. Could see it with the remnant of perception Cassian's partial restoration had left him.*
-
-*And he cut it.*
-
-*Veylin's scream echoed through the warehouse as 800 connections severed simultaneously.*
+*Veylin screamed as the tether severed. And across the eastern district, 800 Hollow gasped as their connections broke simultaneously.*
 
 ---
 
-Draven stumbled mid-strike, his eyes going wide.
+Draven stumbled mid-strike, his eyes going wide. Cassian felt it too through the Coin of Heads—a massive disruption in the network. Eight hundred tethers disconnecting at once.
 
-Cassian felt it too through the Coin of Heads—a massive disruption in the network. Hundreds of tethers disconnecting at once. Somewhere in the city, a major Emissary had just been severed.
+"What—" Draven turned toward the east, sensing the damage.
 
-"What—" Draven turned toward the east, sensing the damage. "What have you done?"
+Cassian didn't give him time to process. He surged forward, channeling the crowd's energy into a devastating strike that caught Draven in the ribs. Bone cracked. Draven flew back, crashing into the mill wall.
 
-"What you bound yourself not to prevent," Cassian said. "We're in single combat. You can't leave. Can't call your network for support. Can't interrupt the fight."
-
-Comprehension flooded Draven's face. "You're attacking the Emissaries. While I'm trapped here."
+But even wounded, he was dangerous. Draven rose, blood on his lips, fury in his eyes. "You're attacking the Emissaries. While I'm distracted here."
 
 "Yes."
 
-Another wave of disruption rolled through the network. A second Emissary severed. Then a third.
+Another wave rippled through the network. A second Emissary severed. Then a third. Torin and Perin were systematically disconnecting the major nodes.
 
-Draven's face twisted with rage. "You tricked me! This was never about single combat—it was a distraction!"
+Draven's power fluctuated as sections of his network went dark. Not destroyed—the Hollow were still hollow, still existed. But temporarily disconnected, unable to feed him energy until new tethers were established.
 
-"It's both." Cassian advanced. "I'm fighting you here. My friends are fighting your network there. And you can't stop either one without breaking the Law's terms."
+The balance of power shifted.
 
-"Then I'll end this fast!" Draven roared, abandoning technique for pure fury. The Coin of Oxen blazed with power, granting him strength beyond anything Cassian could match even with 200 people supporting him.
+Cassian pressed the attack, matching Draven blow for blow now. The crowd's energy sustained him—not just healing, but enhancing every movement, making him fast enough to dodge and strong enough to hurt.
 
-A fist caught Cassian's shoulder, sending him crashing through a table. Pain exploded through his arm. He rolled, barely avoiding a stomp that cracked the floorboards.
+But Draven was adapting. He reached for the golden locket at his throat.
 
-*Too strong. Even with help, he's too strong.*
+"You want to know why I caged the Coin of Waters?" Draven's voice was cold. "It's not just to prevent coin rejection. It's because together, properly controlled, they're unstoppable."
 
-Another strike. Cassian blocked, felt his forearm bones grind against each other from the impact. The borrowed energy was keeping him alive, but barely.
+He opened the locket.
 
-He needed a different approach.
+The Coin of Waters blazed free—no longer suppressed, its power flooding through Draven alongside the Coin of Oxen. And instead of rejecting each other, instead of tearing him apart, they synchronized.
 
-*The Coin of Waters,* Cassian realized. *He mentioned having it. Two coins. If I can—*
+*He's learned to balance them,* Cassian realized. *Not through suppression but through mastery.*
 
-Draven grabbed him by the throat, lifting him off the ground. "Clever plan. But cleverness doesn't beat raw power. It never has."
+Draven's wounds began healing—the Coin of Waters manipulating the fluids in his body, knitting tissue, clearing blood. And his strength redoubled as both coins fed him power simultaneously.
 
-Cassian couldn't breathe. The world started to gray at the edges. He reached desperately through the Coin of Heads, finding Draven's mind—
+"They said dual bonding was impossible!" Draven smiled through blood-stained teeth. "It's nearly impossible. But I've spent years learning to balance them. Learning to make them work together instead of fighting."
 
-And Mira's presence, connected through her binding to the Coin of Oxen.
+He attacked with renewed fury, water and strength combined. The very moisture in the air became a weapon—Cassian felt his lungs constrict, blood vessels strain, sweat trying to boil from his skin.
 
-*Mira!* Cassian sent along the thread. *Can you hear me?*
+Cassian countered with the Coin of Heads, entering the gray space. He could see the attacks coming before they landed, could sense the flow of Draven's power and adapt.
 
-A surge of awareness. Shock. Then fierce joy. *Cassian! You're—he's fighting you—I can feel it through the binding—*
+But it wasn't enough. Two coins versus two coins, except Draven had years of experience and thousands of slaves feeding him power.
 
-*I need your help. The golden locket. Can you see it? Can you reach it?*
+Cassian was drawing on thousands too now—maybe three thousand connections as more and more of the crowd accepted the trade. But they were giving freely, which meant he had to be careful. Had to manage each connection, ensure no one died from giving too much.
 
-Through their connection, strengthened by proximity to Draven's network, Cassian felt Mira's consciousness snap into focus. She was in a room somewhere in the mill. Watching. Bound by the Coin of Oxen to obey Draven's commands—but Draven hadn't commanded her to do anything regarding the locket.
+A strike slipped through Cassian's defenses. Then another. He felt ribs crack, felt blood fill his mouth. The crowd's energy healed him, but slowly, the damage mounting faster than the restoration.
 
-*I can see it,* Mira sent back. *He took it off. Left it on the table beside me. He said—he said he didn't need it to beat you.*
-
-*Open it. Break the seal. Free the Coin of Waters inside.*
-
-*But that will—*
-
-*Just trust me!*
-
-Draven's grip tightened. Cassian's vision started to tunnel. But through the thread to Mira, he felt her move. Felt her hands close on the golden locket.
-
-Felt her open it.
-
-The Coin of Waters blazed free—no longer caged, no longer suppressed. And without the locket containing it, without the careful balance Draven had maintained between his two coins, they began to reject each other.
-
-Draven screamed.
-
-His grip on Cassian's throat released. He staggered back, clutching his chest as the two coins warred within him. The Coin of Oxen demanding dominance. The Coin of Waters demanding freedom. Both trying to assert control over the same bearer.
-
-"What—what did you—" Draven's voice was anguished.
-
-"Historical records say dual bonding is impossible without careful containment," Cassian gasped, his throat raw. "You found a way around that by caging one coin. But without the cage..."
-
-The two coins were tearing Draven apart from the inside. Not physically—but spiritually, each one pulling his essence in different directions.
-
-Draven fell to his knees, blood trickling from his nose. "Stop—stop this—"
-
-"I can't," Cassian said truthfully. "Only you can. Release one of the coins. Break your bond with it willingly. It's the only way to survive."
-
-"Never!" Draven's eyes blazed with defiance even through the pain. "I need both. Need all seven. The crown—the power—I won't give up—"
-
-Another wave crashed through the network. Fourth Emissary severed. Then fifth. Torin and Perin were systematically dismantling the network's foundation while Draven writhed, unable to stop them.
-
-"You're losing everything," Cassian said. "Your network is fragmenting. Your coins are destroying you. And you're bound by the Law to stay here until the combat ends. Let one coin go. Survive. We can end this."
-
-For a moment, Draven wavered. The pain was clearly unbearable—his hands shook, his breath came in ragged gasps. Blood ran from his ears now, the internal damage mounting.
-
-Then his face hardened. "If I can't have them, neither can you."
-
-He lunged—not at Cassian, but at the Coin of Seeds lying on the floor where Cassian had set it.
-
-Cassian moved to intercept, but Draven was faster despite his pain. His hand closed on the medallion.
-
-And the third coin began bonding.
-
-"No!" Cassian shouted. "You can't—three coins will kill you—"
-
-"Then we both die!" Draven's voice was triumphant through the agony. "You, me, everyone connected to our networks—all of it ends—"
-
-The Coin of Seeds flared with power, trying to bond with someone who already carried two. The rejection was immediate and catastrophic. Draven's scream turned inhuman as three divine artifacts fought for control of his soul.
-
-Cassian felt it through the Coin of Heads—the tearing, the fragmentation, Draven's essence literally being pulled apart.
-
-And he felt the ripple through the network. Thousands of Hollow, all connected to Draven, all about to experience catastrophic backlash when he died.
-
-*Including Mira.*
-
-Cassian didn't think. He grabbed Draven's wrist, pressing his other hand against the man's chest, and reached deep into himself with both remaining coins—Heads and Waters (which had transferred to him when Mira opened the locket, seeking a new bearer).
-
-*I'll hold it,* he sent to the Law. *The burden. The cost. Transfer it to me.*
-
-The Law considered. It was a fair offer—one consciousness accepting the weight of three coins' rejection, taking it from Draven and bearing it himself.
-
-*Accepted.*
-
-The pain slammed into Cassian like a hammer. Three coins, all trying to dominate, all pulling in different directions. His mind began to fracture under the strain, identity splintering into fragments.
-
-But he held on.
-
-Held on long enough to will the Coin of Seeds back to its resting place—breaking his bond with it voluntarily, releasing it to find another bearer someday.
-
-Held on long enough to will the Coin of Waters into dormancy—not bonding with it, just preventing it from tearing him apart.
-
-Held on until only the Coin of Heads remained, burning like fire in his palm but familiar, *his*, the only one he'd truly bonded with from the beginning.
-
-The pain receded to manageable levels.
-
-Cassian collapsed, gasping. Draven lay beside him, unconscious but alive, the attempt to bond with three coins having failed when Cassian had taken the burden.
+He was losing.
 
 ---
+
+*Fourth Emissary severed. Fifth. Sixth.*
+
+*Torin moved through the city like a ghost, Perin at his side, Drenneth's soldiers providing cover. They hit every major node Torin had identified from the research.*
+
+*Eight hundred Hollow per severance. Sometimes a thousand. The network fragmenting piece by piece.*
+
+*But Torin could see the problem: the disconnected Hollow were panicking. Without the network's structure, they didn't know what to do. Many were already seeking new Emissaries to reconnect with. Without immediate restoration, the severances would be temporary.*
+
+*And they didn't have the resources for mass restoration. Not yet.*
+
+*But they could buy Cassian time. That would have to be enough.*
+
+---
+
+Draven drove Cassian into the ground with bone-crushing force. The impact created a crater in the plains. Cassian tried to rise, but Draven's boot pressed down on his chest.
+
+"You fought well," Draven said, breathing hard. His wounds were still healing, but he'd taken damage. Real damage. "Better than your father. Better than the King's father. You actually made me work for this."
+
+Through the Coin of Heads, Cassian could sense the network status. Seven Emissaries severed. Perhaps 6,000 Hollow temporarily disconnected from Draven's power source. It was weakening him—but not enough.
+
+He still had thousands more. Still had dual coins. Still had years of experience.
+
+"But you're still going to lose," Draven continued. "Because at the end of the day, power comes from taking, not asking. Those people giving you energy? They're already tiring. Already withdrawing consent because the cost is too high. My network never tires. Never refuses. Never stops feeding me strength."
+
+He was right. Cassian could feel it—hundreds of connections dropping as volunteers hit their limits. The crowd had been willing to help, but sustaining the energy transfer was exhausting. They couldn't maintain it indefinitely.
+
+And Draven could. He could drain his network to death if needed, because the Hollow couldn't refuse.
+
+Cassian reached desperately through the Coin of Heads, trying to find any advantage. Any weakness in Draven's defenses.
+
+And he found something.
+
+The Coin of Waters, freed from its cage, was fighting with the Coin of Oxen even though Draven had them balanced. The rejection was subtle—not the catastrophic tearing that killed most dual bearers, but a constant low-level conflict. Draven was spending enormous mental energy keeping them synchronized.
+
+If Cassian could disrupt that balance...
+
+He reached out through the Coin of Heads, touching Draven's mind. *The coins are tearing you apart,* he sent. *Even controlled, they're destroying you from the inside. You can feel it, can't you? The constant strain. The pieces of yourself you've sacrificed to keep them balanced.*
+
+Draven's concentration wavered—just for a second.
+
+The coins slipped out of sync.
+
+Draven screamed as pain lanced through him. His boot lifted from Cassian's chest as he staggered back, clutching his head.
+
+Cassian rolled away, gasping. Used the crowd's diminishing energy to heal his worst injuries. Rose on shaky legs.
+
+"Clever," Draven snarled, forcing the coins back into balance through sheer will. "But tricks won't save you. You're running out of power. Out of time. Out of options."
+
+He was right. Cassian could feel maybe a thousand connections still active—the most dedicated volunteers, holding on despite exhaustion. But they couldn't sustain this much longer.
+
+One final gamble.
+
+Cassian reached through the Coin of Seeds to all thousand remaining connections. *I need everything you can give. All of it. Right now. For one final strike.*
+
+He felt their fear. Giving everything meant collapsing afterward. Meant being completely drained, potentially dying if they gave too much.
+
+But he also felt their determination. They'd chosen to support him. Chosen to prove that freely given mattered.
+
+One by one, they opened themselves fully. Gave everything they had.
+
+A thousand people, pouring their life force into Cassian simultaneously.
+
+The power was immense. Overwhelming. More than his body could safely hold. But he channeled it anyway, focusing everything into a single strike enhanced by both coins—perception guiding it, growth empowering it.
+
+He moved faster than thought, crossing the space between them in an instant, driving his fist into Draven's chest with force that shattered the sound barrier.
+
+The impact sent Draven flying across the plains. He crashed through the mill wall, through the interior, out the other side. Finally stopped two hundred paces away, embedded in the ground.
+
+Cassian collapsed, the energy completely spent. The thousand connections went dark as the volunteers fainted from exhaustion.
 
 Silence.
 
-Cassian lay on the mill floor, every muscle screaming. Through the Coin of Heads, he could sense the aftermath:
+The crowd watched, holding their breath.
 
-Five Emissaries severed. Approximately 2,500 Hollow disconnected from the network. Not destroyed—Draven still lived, still technically controlled the network. But fragmented. Weakened. No longer the unstoppable force it had been hours ago.
+Draven stirred.
 
-And through the thread to Mira: *Cassian? Are you alive? Please tell me you're alive.*
+He rose slowly, his chest caved in, blood pouring from dozens of wounds. The Coin of Waters worked frantically to heal him, but the damage was catastrophic. Too much for even divine power to fix quickly.
 
-*I'm alive,* he sent back weakly. *Is Draven's binding broken?*
+But he was still standing. Still alive. Still functional.
 
-A pause. Then: *I can feel it loosening. When you took the coins from him—when he failed to bond with the third one—it broke his concentration. The binding is still there but... I can move. I can choose. It's not absolute anymore.*
+"Impressive," Draven said, his voice wet with blood. "That actually hurt."
 
-Footsteps. Cassian looked up to see Mira running across the mill floor, tears streaming down her face. She dropped to her knees beside him.
+He took a step forward. Then another. Limping, broken, but not defeated.
 
-"You idiot," she sobbed. "You absolute idiot. Trying to bond with three coins? You could have died!"
+Cassian tried to stand. Couldn't. He'd used everything. The connections were exhausted. He had nothing left.
 
-"Had to," Cassian managed. "Couldn't let the backlash kill thousands. Including you."
+Draven approached slowly, inevitably. "I told you. Power comes from taking. You can't match that with freely given cooperation. The math doesn't work."
 
-Mira grabbed his face, kissing him fiercely. Through their connection, he felt everything she couldn't say—relief, terror, love, gratitude, rage at his recklessness.
+"Then why are you bleeding?" Cassian managed.
 
-When she pulled back, her eyes were blazing. "Don't ever do that again."
+Draven smiled through blood. "Because you surprised me. Made me actually try. But now—"
 
-"Can't promise that."
+A voice cut across the plains. "Stop."
 
-"Then at least—" She glanced at Draven's unconscious form. "What do we do with him?"
+King Aldric stepped forward, flanked by Captain Drenneth and two hundred soldiers. Not attacking—just present. Witnessing.
 
-Good question. They'd won the combat. According to the Law's terms, Draven had to honor Cassian's conditions: release Mira, surrender the coins, disband the network.
+"The combat is over," the King said. "You've proven your point, Kane. You're stronger. But Cassian proved his too—that freely given cooperation can hurt you. Can disrupt your network. Can make you *bleed.*"
 
-But Draven was also unconscious, unable to consciously consent to anything.
+"And?" Draven's eyes were cold.
 
-King Aldric entered the mill, flanked by Captain Drenneth. He surveyed the scene—Cassian and Mira on the floor, Draven unconscious, three coins scattered around them—and nodded grimly.
+"And we're offering a truce. Temporary. You return to your territories. We return to ours. You don't advance on the capital. We don't attack your network. Both sides recover, rebuild, and we negotiate terms later."
 
-"Torin's team succeeded," the King said. "Five major Emissaries severed. The network is in chaos. Hollow across the city are panicking, disconnecting, seeking new tethers." He looked at Cassian. "You actually did it. You beat him."
+"Why would I accept that? I can kill him right now. Take his coins. Win completely."
 
-"We beat him," Cassian corrected. "All of us together."
+"You could try," the King said. "But my soldiers are here. The crowd is watching. And Cassian's team has severed seven of your major Emissaries. Your network is fragmenting. Yes, you could kill him. But could you escape afterward? Could you survive this crowd turning against you? Could you rebuild your network with the capital in open revolt?"
 
-Drenneth's soldiers moved to secure Draven, binding him with chains. The man stirred slightly but didn't wake.
+Draven looked around. The crowd was no longer passive. No longer willing to simply accept his authority. They'd seen Cassian hurt him. Seen proof that resistance was possible.
 
-"What happens now?" Mira asked.
+"This isn't over," Draven said finally.
 
-"Now," the King said, "we deal with the aftermath. 2,500 disconnected Hollow need restoration support. The network needs to be fully dismantled before Draven wakes and tries to reassert control. And we need to secure these coins before anyone else tries to claim them."
+"No," the King agreed. "But it's not finished today either. Take the truce. Live to fight another day. Or die here trying to claim a victory you can't hold."
 
-He looked at Cassian. "The Coin of Heads is bonded to you—we can't separate it without killing you. But the Coins of Oxen, Waters, and Seeds? Those are free. They'll seek new bearers eventually, but for now, they're vulnerable."
+Draven stared at Cassian for a long moment. Then he smiled—bloody, vicious, but genuine.
 
-"Destroy them," Cassian said immediately.
+"You're right. This is more interesting as a prolonged game." He touched his ruined chest, feeling the extent of the damage. "Besides, I learned something valuable today. You exploited a weakness. I'll need to compensate for that before our next confrontation."
 
-"We can't. They're divine artifacts—indestructible." The King knelt, studying the medallions. "But we can hide them. Separate them. Ensure no one person can claim multiple coins again."
+He turned to leave, then paused. "Terms of the truce: I withdraw my forces from this region. We both get time to recover, rebuild, and prepare for the next round."
 
-"What about Draven?" Mira asked.
+Through the mental connection to Mira, Cassian felt something shift. The binding was still there—she was still bound to Draven's authority by oath—but it felt... different. Less absolute. The "understanding" Draven and he had just reached might not fully break the bargain, but it had changed something.
 
-"He challenged you to single combat. You won. By the Law's terms, he owes you complete surrender—coins, network, authority." The King's expression was hard. "When he wakes, he'll be compelled to honor those terms or face the Law's punishment. Either way, he's finished."
+Draven seemed to sense it too. His smile turned predatory. "Your friend remains under my authority, by the way. A temporary truce is not a true 'understanding.' She stays bound until you and I resolve things more permanently."
 
-Cassian wanted to feel triumphant. Wanted to savor the victory. But all he felt was exhausted.
+He let that sink in. Keeping Mira was leverage. Insurance. A guarantee that Cassian would have to face him again eventually.
 
-"The people who gave me their energy," he said. "Are they—"
+"Better master your coins, Cassian. Because next time we meet, I won't make the mistake of underestimating you. And next time, your crowd won't save you."
 
-"Tired but alive," the King confirmed. "The connection broke when the combat ended. They'll need rest, but they'll recover." He smiled slightly. "They're celebrating, actually. Word spread fast that you beat Draven. The town is treating it like a holiday."
+He walked away across the plains, limping but unbroken. The crowd parted, afraid to stop him, afraid to fight.
 
-Through the Coin of Heads, Cassian could sense it—joy radiating from the mill square where the townspeople had gathered. Relief. Pride. Hope.
+Cassian watched him go, feeling a mix of relief and frustration. They hadn't won. Hadn't defeated him. But they'd hurt him. Proven that resistance was possible.
 
-They'd chosen to give freely, and it had mattered.
-
-"Help me up," Cassian said to Mira.
-
-She supported him as he stood, every muscle protesting. Together, they walked to the mill door.
-
-Outside, hundreds of people waited. When they saw Cassian emerge—alive, victorious—they erupted in cheers.
-
-Widow Marta was in the front row. "You did it, boy! Beat the monster!"
-
-Others echoed her: "The Hollow are fleeing!" "The network's breaking apart!" "We're free!"
-
-Cassian raised a hand for silence. When the crowd quieted, he spoke:
-
-"You freed yourselves. I was just the conduit. You chose to give your strength. You chose to trust. That's what beat Draven—not power, but freely given cooperation." He looked across the faces. "Remember that. When the next threat comes. When the next person tries to rule through fear. Remember that you're stronger together than any tyrant can ever be alone."
-
-The crowd roared approval.
+Maybe that was enough for now.
 
 ---
 
-*Three days later*
+The aftermath was chaos.
 
-The restoration work was slow, painstaking, and heartbreaking.
+Medics rushed to treat the thousand volunteers who'd given everything—most were simply unconscious, drained but alive. A few had given too much and required urgent intervention. Cassian used the Coin of Seeds to gently restore them, giving back some of what they'd sacrificed.
 
-Of the 2,500 Hollow disconnected from Draven's network, approximately 800 had chosen to attempt restoration. The rest had either fled, died from the shock of disconnection, or begged to be reconnected to *something*—anything to fill the void.
+The seven severed Emissaries left 6,000 Hollow disconnected and panicking. Torin coordinated triage efforts, identifying those who could be restored versus those too far gone.
 
-Cassian worked with them in shifts, using the Coin of Heads to facilitate restoration trades. Perin, Torin, and the other partially restored volunteers provided seed material—small fragments of memory and emotion that could serve as foundation for natural healing.
+Cassian collapsed in the medical tent, barely conscious. Through the mental connection, he felt Mira's presence—still bound to Draven, still trapped wherever he'd taken her, but able to reach him through the gray space.
 
-It wasn't perfect. Many who attempted restoration got stuck in partial states like Torin—functional but emotionally diminished. Others regained their identities but were traumatized by the memories of what they'd done while hollow.
+Her voice came through clearly, edged with relief and fury. *You idiot. You absolute idiot. You nearly died.*
 
-But some—maybe a third of those who tried—restored fully. Became whole again. Chose to help others through the same process.
+*But I didn't.*
 
-Torin worked tirelessly, coordinating logistics with his enhanced analytical capability. He never complained about his own partial state, but Cassian could see the cost in his flat expressions, his mechanical movements.
+*Only because the crowd decided to help at the last second!* He could feel her emotions bleeding through—fear, anger, helplessness. *You gambled everything on people's better nature. What if they hadn't?*
 
-"When this is over," Cassian promised him one night, "we'll finish your restoration. Properly this time. Give you back everything Draven took."
+*Then I would have died proving what I believed.* Cassian managed a weak mental smile. *But they did help. That matters.*
 
-Torin considered this. "I'm not sure I want that anymore."
+*Draven's still alive. Still has his network. Still has both coins. And I'm still bound to him.*
 
-"What?"
+*I know.* The reality of that hit him hard. *I'm sorry. I thought if I fought him, if we reached some kind of understanding—*
 
-"This state—partial restoration—it's useful. I can think without emotional interference. Process patterns others miss. Help people efficiently." He paused. "Maybe being whole isn't always better. Maybe being functional is enough."
+*He's wounded. And his network is damaged. You bought us time. That's more than anyone's done before.*
 
-"It's your choice," Cassian said. "But the offer stands."
+*We'll find a way to break the binding,* Cassian promised.
 
-"Noted."
+*I know. Just... don't die trying.*
 
----
+The connection began to fade as his exhaustion overwhelmed him. But he felt her presence linger, watching over him even from wherever Draven had taken her.
 
-Mira's binding to Draven proved more complicated.
+King Aldric entered the tent. "The truce will hold for now. Draven's retreating to his territories. My scouts report he's lost perhaps a third of his network between the severances and people fleeing after seeing him wounded. It'll take him months to rebuild."
 
-The oath she'd sworn—to serve until Cassian and Draven reached an "understanding"—remained technically active. Draven's defeat in combat created an imbalance in the binding, but didn't break it completely.
+"And us?" Cassian asked.
 
-"We need to negotiate the release properly," the King explained. "Draven has to consciously agree to end the binding. And he's..." He gestured to the cell where Draven sat, silent and unresponsive.
-
-The man had woken two days after the fight. But something had broken in him. He didn't speak. Didn't react when questioned. Just sat staring at the wall, the Coin of Oxen's absence clearly visible in his diminished posture.
-
-"The attempt to bond with three coins damaged him," the King said. "Not physically—the coins couldn't harm his body. But mentally. Spiritually. He's... hollow himself now. Ironically."
-
-Cassian tried reaching him through the Coin of Heads. Found only emptiness—not the structured void of the Hollow, but genuine absence. Draven's consciousness had fractured under the strain of three coins' rejection. What remained was a shell.
-
-"Can he even consent to releasing Mira if he's not conscious?" Cassian asked.
-
-"Legally? No. The binding requires his active agreement." The King looked troubled. "Unless we find a way to restore him enough to make that choice."
-
-The irony wasn't lost on any of them. To free Mira, they'd have to restore the man who'd enslaved her.
-
-"I'll do it," Cassian said.
-
-"Are you sure?" the King asked. "After everything he's done—"
-
-"I'm sure." Cassian looked at Draven's empty eyes. "Because Mira would never be truly free if we kept him broken to maintain her binding. That's just another form of slavery."
-
-So Cassian descended into Draven's fractured mind with the Coin of Heads, finding the scattered pieces of the man's identity. Not all of it—he didn't have enough seed material for a full restoration. But enough to make Draven conscious. Aware. Capable of choice.
-
-When Draven woke properly, his first words were: "Why?"
-
-"Because Mira needs you to release her binding," Cassian said. "And I won't keep you broken just to keep her trapped."
-
-Draven laughed bitterly. "So you restore me enough to free your lover. How transactional. Your father would be disappointed."
-
-"He'd understand. Some things are worth the cost."
-
-Silence. Then: "I release Mira of Millhaven from her oath. Her service is ended. The binding is void."
-
-Cassian felt it through the Coin of Heads—the oath breaking, the binding dissolving. Mira gasped in her room upstairs, suddenly, completely free.
-
-"Thank you," Cassian said.
-
-"Don't thank me. You won. I lost. The Law requires I honor that." Draven's eyes were hollow. "For what it's worth... your network. The one you built with willing participants. It was impressive. I didn't think cooperation could match compulsion. I was wrong."
-
-"You could learn from that. Build something different."
-
-"No." Draven's smile was sad. "I had my chance. My vision. It failed. I won't get another." He leaned back against the wall. "Just... promise me something. The coins I collected. The ones you separated. Don't let them gather again. Don't let anyone try to reassemble the crown. That path leads to madness."
-
-"I promise."
-
-"Then we're done."
+"We have thousands of volunteers who just learned they can make a difference. Hundreds of disconnected Hollow who need restoration. And a city that saw their ledger-keeper nearly kill the Supreme Voice." The King smiled. "I'd say we have work to do."
 
 ---
 
 *One week later*
 
-Cassian stood in the palace courtyard, watching Torin teach Elena how to read value patterns. The girl couldn't see them herself, but Torin described them with such precise detail that she could almost imagine it.
+Cassian stood in the palace courtyard, watching Torin teach Elena about network structures. The girl was fascinated by the concept—connections between people, value flowing back and forth.
 
-Perin approached, looking healthier than Cassian had seen him in weeks. "The restoration numbers are holding steady. About 300 fully restored. Another 400 partial. The rest..." He shrugged sadly. "We did what we could."
+"Can we build a good network?" she asked. "Like what Papa and Cassian made?"
 
-"It's more than Draven would have allowed," Cassian said.
+"That's the goal," Torin said. "A network based on choice instead of compulsion. It's harder to maintain. Requires constant effort. But the potential is significant."
 
-"True." Perin glanced at him. "What will you do now? The King offered you a position. Royal advisor or something."
+Perin approached, looking tired but hopeful. "The restoration work is progressing. About four hundred of the disconnected Hollow have chosen to attempt recovery. The process is slow, but it's working for some."
 
-"I know. I'm thinking about it."
+"And the rest?"
 
-"And Mira?"
+"Some reconnected to other Emissaries. Some fled. Some..." He shook his head. "We're doing what we can."
 
-Cassian felt the thread connecting them—no longer dampened, no longer bound by external force. Just a simple mental link, maintained by mutual choice. "She's thinking too. About whether she wants to stay in the capital or return to Millhaven. Whether she wants..."
+Cassian nodded. It wasn't perfect. Wasn't a complete victory. But it was progress.
 
-He didn't finish, but Perin understood. "Whether she wants to be with someone who carries a divine artifact and attracts chaos wherever he goes."
+A courier arrived from the palace. "The King wants to see you. He's had reports about the other coins."
 
-"Something like that."
+In the throne room, King Aldric had maps spread across the table. "Draven's network is regrouping. He's consolidating in the western territories, rebuilding the Emissaries we severed. But our scouts report something else: he's actively searching for the remaining coins. Wheels. Breath. Hands. He wants to complete the crown."
 
-Mira appeared from the palace entrance, her expression serious. She'd spent the past week helping with restoration efforts, offering her own experiences as someone who'd been on both sides—victim and participant in Draven's network.
+"Can he bond with more than two?" Cassian asked.
 
-"Cassian," she said. "The King wants to see you. It's about the coins."
+"We don't know. It's never been done—but neither had bonding with two coins—and Draven proved that can be done. If he finds a way to bond with three, four, all seven..." The King's expression was grave. "We need to find them first. Or at least prevent him from collecting them."
 
----
+"That's a quest that could take years," Torin said from the corner where he'd been studying one of the maps.
 
-In the throne room, King Aldric had laid out a map. Three medallions sat on the table—Oxen, Waters, Seeds. Free. Unbound. Waiting for new bearers.
+"Then we have years," Cassian replied. "But we don't do it alone. We build the network. Find people willing to help freely. Train them to resist the Hollow. Create something Draven can't match—not because it's more powerful, but because it's chosen."
 
-"We can't keep them here," the King said. "Word is already spreading. People who want power. People who think they can succeed where Draven failed. We need to separate them. Hide them. Ensure no one can collect multiple coins again."
+"Your father tried that," the King said quietly. "It didn't save him."
 
-"Where?" Cassian asked.
+"No. But it inspired us to try again. And maybe we'll inspire whoever comes after us." Cassian looked at the maps, at the pins marking possible coin locations. "Draven thinks power comes from taking. We'll prove it comes from giving. However long that takes."
 
-"Different kingdoms. Different continents if necessary." The King touched each coin in turn. "The Coin of Oxen goes to the Iron Throne—sealed in their deepest vault. The Coin of Waters to the Archipelago—hidden among a thousand islands. The Coin of Seeds..." He looked at Cassian. "That one's different. It bonded with you briefly during the fight. Didn't fully take, but the connection exists. If anyone can safely relocate it, it's you."
-
-Cassian stared at the rough gold medallion. "Where would I take it?"
-
-"Far from here. Somewhere isolated. Somewhere it won't be found easily." The King met his eyes. "And while you're gone, you should think about what you want to do with your own coin. The Coin of Heads. It's bonded to you permanently now. You can't separate from it without dying. But you can choose how to use it. Whether to use it at all."
-
-"I'm not sure I understand."
-
-"Some bearers try to ignore their coins. Suppress the power. Live normal lives despite carrying divine artifacts." The King's expression was grave. "It never works perfectly. But it's a choice. Alternatively, you can embrace it. Become what your father refused to be—a coin bearer who actively shapes the world."
-
-Cassian looked at Mira. She was watching him intently, waiting to see what he'd choose.
-
-"I need time," Cassian said finally. "Time to figure out who I am with this thing. What I want to do with it."
-
-"Then take it," the King said. "Take the Coin of Seeds somewhere safe. Think while you travel. And when you're ready to come back—if you're ready—there will be work waiting. The Hollow network may be broken, but the damage remains. People need restoration. Need help rebuilding."
-
-"What about Draven?"
-
-"He'll be held here. Partially restored, as you left him. Conscious but powerless. It's not mercy, exactly. But it's not cruelty either. It's... balance."
-
-Cassian nodded. That felt right. Not forgiveness—Draven had killed too many people, destroyed too many lives for that. But not endless punishment either. Just consequences. Fair ones.
-
-"I'll leave tomorrow," Cassian said.
+The King studied him for a moment, then nodded. "Then we begin. Today."
 
 ---
 
-That night, Cassian and Mira stood on the palace balcony under stars.
+*Epilogue - Three Months Later*
 
-"You're really going," Mira said. It wasn't a question.
+The network was growing.
 
-"I have to. The coin needs to be hidden. And I need..." He struggled for words. "I need to figure out what I've become. What the coin has made me."
+Not through coercion or deception, but through example. People who'd volunteered in the fight were teaching others. Towns were forming mutual aid societies. Refugees were training in restoration techniques.
 
-"You're still you."
+It was slow. Fragile. Constantly threatened by Draven's agents trying to undermine it.
 
-"Am I?" He pulled out the Coin of Heads, staring at its obsidian surface. "I can perceive value in everything now. Abstract worth. Hidden motivations. I can broker trades that reshape lives. Connect my mind to others. I'm not the ledger-keeper I was three months ago."
+But it was real.
 
-"No. You're the ledger-keeper who stopped a tyrant. Who built a network based on trust. Who risked everything for people you barely knew." Mira took his hand. "That's still you. The coin didn't create that. It just gave you tools to express what was already there."
+Cassian stood on the city walls at sunset, both coins warm in his pockets. He could feel the shimmer of connections across the capital—not the forced tethers of Draven's network, but freely chosen cooperation. People helping each other because they chose to, not because they had to.
 
-"You really believe that?"
+Through his mental connection to Mira, he felt her presence touch his mind. She was still bound to Draven, still trapped in his western stronghold, but their link remained strong.
 
-"I know it. Because I've seen who you are when it mattered. When you had the choice to become like Draven—to take instead of give, to dominate instead of cooperate—you chose differently." She squeezed his hand. "The coin doesn't define you. Your choices do."
+*Torin's intelligence reports are in,* her voice came through the gray space. *Draven's found another Emissary candidate. Someone powerful in the southern territories.*
 
-"Come with me," Cassian said suddenly. "On the journey. Help me hide the coin. See the world beyond the capital. Figure out what comes next together."
+*We'll deal with it,* Cassian replied.
 
-Mira was quiet for a long moment. Then she smiled. "I thought you'd never ask."
+*And the King's scouts report possible sightings of the Coin of Wheels. Multiple kingdoms searching for it.*
+
+*We'll deal with that too.*
+
+*You sound confident for someone who barely survived our last fight.*
+
+*I sound realistic. This isn't about one battle. It's about building something that lasts. Something Draven can't corrupt.*
+
+He felt her concern through the bond. *And what about me? Still bound to him. Still his leverage over you.*
+
+*We'll break the binding. Eventually. When we find the right understanding—the real one that satisfies the Law.*
+
+*That could take years.*
+
+*Then we have years.* He projected warmth through the connection. *You're not alone in this. Neither am I.*
+
+A long pause. Then: *Don't make promises you can't keep.*
+
+*I don't plan to.*
+
+He felt her wry amusement. *You sound confident.*
+
+*I'm not. But I'm committed.* Cassian looked out over the city, at the people moving through streets, making choices, living freely. *Draven's still out there. Still powerful. Still dangerous. But he's not unstoppable. We proved that.*
+
+*And you're going to spend the rest of your life proving it again and again, aren't you?*
+
+*Probably.* He smiled, knowing she could feel it through the bond. *Someone has to.*
+
+*Then I'll be with you. However long it takes. Even if it's just through this connection.*
+
+Below, the city began lighting evening lanterns. The network hummed with activity—people choosing to help each other, choosing to resist, choosing to build something better.
+
+It wasn't victory. Not yet.
+
+But it was a start.
 
 ---
 
-*Two weeks later*
-
-Cassian and Mira stood at the edge of the Great Forest, three days' ride from the capital. The Coin of Seeds rested in a sealed box—inactive, unbound, but still radiating potential.
-
-"This is the place," Cassian said. Using the Coin of Heads, he'd found a grove where value concentrated naturally. A place where growth and life intertwined so thoroughly that the coin would be camouflaged. Hidden in plain sight among natural fertility.
-
-Together, they buried it beneath an ancient oak. Not deep—the coin couldn't be destroyed, so protecting it from shovels was pointless. But concealed enough that casual seekers wouldn't find it.
-
-When they finished, Mira asked, "What if someone does find it? What if it bonds with someone dangerous?"
-
-"Then we deal with it," Cassian said. "The same way we dealt with Draven. Together. With people we trust."
-
-They turned back toward their horses. The journey home would take weeks. Time to think. Time to plan. Time to decide what kind of life they wanted to build.
-
-As they rode, Cassian felt the Coin of Heads pulse against his chest. Still bonded. Still active. Still showing him the shimmer of value in everything around them.
-
-But now he understood what his father had learned: the coin showed him value, but he chose what to do with that knowledge.
-
-And that choice—freely made, consciously accepted—was the only power that truly mattered.
-
----
-
-*Epilogue*
-
-*One year later*
-
-Elena ran through the palace garden, laughing as Torin chased her with mechanical precision. His partial restoration had stabilized—he'd chosen to remain in that state, functional but emotionally diminished, useful in ways full restoration wouldn't allow.
-
-Perin watched from the bench, fully restored now after months of careful work. He'd regained his memories, his emotions, his sense of self. And he'd used that restoration to help hundreds of others through the same process.
-
-King Aldric reviewed reports in his study. The Hollow network was largely dismantled. Draven remained imprisoned, stable but diminished. The three free coins were hidden across the world—or so they hoped.
-
-And Cassian...
-
-Cassian stood in the counting house where this had all started, reviewing ledgers. Not as Royal Advisor, though the King had offered that position multiple times. Just as Cassian. Ledger-keeper. Bearer of the Coin of Heads. Man who'd learned that sometimes the most important values couldn't be measured in gold.
-
-Mira entered, carrying bread from the bakery. "Still balancing books?"
-
-"Someone has to make sure the tax records are accurate." He smiled. "Besides, it's calming. Reminds me who I was before all of this."
-
-"And who you are now?"
-
-Cassian considered the question. The Coin of Heads pulsed warmly in his pocket—always there, always active, always showing him the shimmer of worth in everything and everyone around him.
-
-"Still figuring that out," he admitted. "But I'm okay with not knowing yet."
-
-"Good." Mira set the bread down, taking his hand. "Because we have all the time we need to figure it out together."
-
-Through the window, the sun set over the capital. People moved through streets, living their lives, making their choices. Some good. Some bad. All free to decide for themselves.
-
-And in the counting house, Cassian closed his ledger, feeling the familiar satisfaction of balanced accounts.
-
-Some things, at least, never changed.
-
-*End of Book One*
+**END OF BOOK I**
