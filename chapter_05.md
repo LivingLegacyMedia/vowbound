@@ -104,7 +104,23 @@ Cassian tried to think, but panic clouded his mind. His mother's face. The only 
 
 "My father was desperate."
 
-**"And you are not?"** The void-eyes fixed on him. **"Then leave. Go back to your little town. Wait for the Hollow to arrive. Watch them offer escape to everyone you've tried to help. Watch them sign the contracts. Watch them empty."**
+**"And you are not?"** The void-eyes fixed on him. **"You could ask for everything. Total knowledge. Every secret Draven holds. Every plan he's made. Every weakness he possesses."**
+
+Hope surged in Cassian's chest. "Yes. That. I'll pay—"
+
+**"But you don't have enough,"** the Dealer interrupted. **"You're twenty-four years old. Your accumulated knowledge, all your memories, every thought you've ever had—it wouldn't purchase omniscience. The Law demands equivalent exchange. You simply don't possess wealth enough to buy godhood."**
+
+The hope died. "Then what can I afford?"
+
+**"Specifics. Limited answers. One piece of the puzzle."** The Dealer gestured at the emptiness around them. **"How his system works, for example. That might cost you one precious memory. But you cannot buy what you cannot pay for. The Law is absolute in this."**
+
+"My mother's face," Cassian said quietly. His coin revealed the true cost of that memory. "That's what you want. For the knowledge of how Draven's network functions."
+
+**"It is the only thing you have that equals what you seek. Memory for knowledge. Both within your coin's domain. Both precious. Both irreplaceable. The trade balances."** 
+
+"No." The word came out strangled. "I can't. Something else. There has to be something else."
+
+**"There is nothing else."** The Dealer's voice was patient, almost kind. **"You could leave. Go back to your little town. Wait for the Hollow to arrive. Watch them offer escape to everyone you've tried to help. Watch them sign the contracts. Watch them empty."**
 
 The Dealer began to fade.
 

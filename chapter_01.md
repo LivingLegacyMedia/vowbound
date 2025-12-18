@@ -280,13 +280,15 @@ Cassian read.
 
 *What you hold is older than kingdoms, older than the myths that remember it. I spent my life trying to understand it, and in the end, I can only tell you what little I learned:*
 
-*It chooses its bearer. Not by merit, not by birthright, but by something I never fully grasped.*
+*It chooses its bearer. Not by merit, not by birthright, but by something I never fully grasped. The bond, once formed, cannot be broken except by death or willing surrender. Even if someone killed the coin's-bearer and took it by force, it would likely reject them dormant for years, perhaps decades, until it bonded with another.*
+
+*The coin governs the realm of mind: knowledge, perception, memory, intelligence. You cannot use it to grow crops or command storms. Do not attempt to do so.*
 
 *It will show you what things are worth. Not by the price of men, but their true value. The two are rarely the same.*
 
-*Everything has a cost. Always.*
+*Everything has a cost. Always. You must possess something of equal value to what you seek. The greater the request, the greater the cost demanded. Some things are simply beyond reach because no mortal possesses enough to trade for them. The Law will not permit unbalanced transactions.*
 
-*I don't know if it will accept you as it accepted me. But if it does, I pray you are wiser than I was. I tried to use it to chase shadows and in the process I lost everything of real value. Don't make the same mistake I made.*
+*I don't know if the coin will accept you as it accepted me. But if it does, I pray you are wiser than I was. I tried to use it to chase shadows and in the process I lost everything of real value. Don't make the same mistake.*
 
 *The Hollow is coming, Cassian. I heard the stories before I died—refugees fleeing something that empties people from the inside. I fear I now understand what that means, though I hope I'm wrong.*
 

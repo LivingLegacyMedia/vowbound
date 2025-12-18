@@ -262,7 +262,17 @@ And when they passed a clearing where wildflowers grew, Cassian could have sworn
 
 They found a spot where the trees opened enough for a small camp. No fire—too risky—but they had dried meat and water from the cabin. Mira spread a blanket and immediately lay down, exhaustion claiming her in moments.
 
-Cassian sat with his back against a tree, both coins in his hands now.
+Cassian sat with his back against a tree, both coins in his hands now. His entire body ached in a way that sleep wouldn't fully fix. The trade in the aqueduct had pushed him further than he'd ever gone before.
+
+When the severance happened, he'd felt it—all hundred tethers snapping at once. Not just breaking, but routing through him as the Law enforced the exchange. For those few seconds, he'd been the conduit between Draven's network and freedom. A hundred minds flowing through his consciousness like water through a sieve.
+
+His father's letter had warned about this, though Cassian hadn't fully understood it at the time: *The coin amplifies what you can do, but you remain human. Push too far, demand too much, and the cost becomes more than coin or memory. It becomes flesh and blood and sanity.*
+
+He'd almost fractured. Standing there in the aqueduct, holding those hundred lives in his mind simultaneously—it had been like trying to contain an ocean in a cup. Only the fact that they were being *released* rather than controlled had made it survivable. If he'd tried to hold them, to actively maintain that many connections...
+
+He shuddered. That would have destroyed him. Shattered his mind into fragments that might never reassemble.
+
+The Law of Balance didn't just govern trades—it governed capacity. You could only exchange what you could hold, only transform what you could withstand. The coin gave him access to greater power, yes, but his human limits remained. Push beyond them, and the trade would still balance—with his life, his sanity, his self.
 
 The Coin of Heads felt familiar. Sharp. Precise. It had always enhanced his perception, his ability to *know* things. But the Coin of Seeds was different. Warmer. More patient. It pulsed with slow rhythmic energy—the heartbeat of growing things.
 

@@ -122,13 +122,47 @@ Both Mira and Cassian turned to him, startled.
 
 "Yes. I don't remember why, but something tells me I used to be someone who tried things. Who solved problems. Who didn't give up." Torin frowned, struggling with concepts that should be simple. "I don't know if I want to be whole again. But I'd like to know what 'whole' feels like. So I can decide if I want it."
 
+He paused, tilting his head in that characteristic way. "Though I should clarify—I don't entirely understand why it matters so much to you. This version of me is efficient. Logical. I can observe patterns, catalog information, solve problems without emotional interference." His gaze moved between Mira and Cassian, analytically. "I don't suffer the way Mira does. Don't experience the confusion or pain that emotions seem to cause. Sometimes I think..." He trailed off, searching for the right words. "Sometimes I think I might prefer it this way."
+
+Mira's face went pale. "You prefer being broken?"
+
+"I don't think I'm broken," Torin said calmly. "I think I'm different. And different isn't necessarily worse." He looked at his hands. "When I catalog guard schedules or map building layouts, I don't get distracted by fear or hope. When I analyze a problem, I don't second-guess myself with doubt. There's a purity to it. A clarity."
+
+"That's not living, Torin. That's just... existing."
+
+"Is there a meaningful difference?" Torin asked, genuinely curious. "From my perspective, you spend half your time suffering because of emotions you can't control. Love makes you cry. Fear makes you hesitate. Anger makes you irrational. Why would I want to return to that?"
+
+Cassian watched the exchange, something heavy settling in his chest. This was the real problem—not that Torin couldn't be restored, but that he might not want to be. The person who would choose restoration didn't exist anymore. And the person who did exist saw emotions as weaknesses to be avoided.
+
+"Because those emotions are what make you *you*," Mira said desperately. "The real you. My brother. Not this... this calculating machine wearing his face."
+
+Torin considered this. "But the 'real me' doesn't exist anymore. He was destroyed when I opened that locket. What remains is... this. And this version doesn't want what you want. Doesn't feel what you feel." He paused. "Though I'll admit, I don't like that I can't understand why that upsets you so much. Like there's a problem I should be able to solve, but I can't even understand what it is."
+
+"That's exactly it," Cassian said quietly. "You can identify that there's something missing, even if you can't feel the absence. That awareness—that's the part of you that's still reaching for wholeness, even if you don't understand why."
+
+Torin looked at him. "You think the desire to understand my own gaps is evidence of humanity?"
+
+"I think it's evidence that you're not as content with this state as you believe you are. If you were truly satisfied being this way, you wouldn't be curious about what you're missing. You'd just... exist. Efficiently. Without questions."
+
+For a long moment, Torin was silent. Then: "That's annoyingly logical."
+
 Despite everything, Cassian smiled. There—*there* was a flicker of the person Torin had been. Brilliant, curious, methodical. Buried under layers of damage but not gone. Not entirely.
 
-"Then we'll start tomorrow," Cassian said. "One hour each day. I'll teach you to sense the gaps in your mind, recognize what's missing, and practice growing new connections. It'll be hard. Probably frustrating. But if you're willing—"
+"Then we'll start tomorrow," Cassian said. "One hour each day. I'll teach you to sense the gaps in your mind, recognize what's missing, and practice growing new connections. It'll be hard. Probably frustrating. And you might decide partway through that you prefer the clarity of this state to the messiness of emotions. That's your choice. But at least you'll make it knowing what both options actually feel like."
 
-"I'm willing," Torin said. Then, with the faintest hint of emotion: "I don't want to be broken forever."
+"That seems fair," Torin said. Then, with the faintest hint of something that might have been concern: "And if I do decide I prefer staying this way? Will Mira hate me for it?"
 
-Mira's face crumpled. She reached for her brother, pulled him into a desperate embrace. "You're not broken, Torin. You're just... unwell. And we're going to fix that. Together."
+The question hung in the air. Mira's breath caught.
+
+"No," she said finally, voice thick. "I could never hate you, Torin. Even if you choose to stay like this. Even if you decide that emotions aren't worth the pain." She wiped her eyes roughly. "I'll be heartbroken. I'll probably cry about it for months. But I won't hate you. You're still my brother. Whatever you choose to become."
+
+Torin nodded slowly, processing this. "That seems... inefficient. Loving someone regardless of whether they can love you back."
+
+"Yes," Mira laughed through tears. "Love is very inefficient. Welcome to being human—or at least, learning about it."
+
+"I don't want to be broken forever," Torin said quietly, as if the thought had just occurred to him. "I want to understand what I'm missing. Even if I ultimately decide I don't want it back."
+
+Mira's face crumpled. She reached for her brother, pulled him into a desperate embrace. "You're not broken, Torin. You're just... unwell. And we're going to help you understand. Together."
 
 Torin patted her shoulder awkwardly, mechanically. "You're crying again. Is this still about love?"
 
