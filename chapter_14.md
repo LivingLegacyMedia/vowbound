@@ -346,6 +346,102 @@ Mira caught him before he hit the ground.
 
 ---
 
+Perin ran.
+
+His legs trembled with each step, muscles unused to the urgency of purpose. Two years of hollow emptiness had taught him efficient movement—never hurried, never desperate, never *caring* enough to run. But now every fiber of his being screamed to move faster.
+
+Elena. His daughter. Six years old—no, eight now. Two years lost. Two years of her growing up without him, thinking he'd abandoned her by choice.
+
+The south market refugee quarter sprawled in the shadow of the old city walls—a warren of makeshift shelters and desperate people. Perin's newly restored memories showed him exactly where to look. The alley behind the baker's shop. Elena had claimed the space under the external staircase, where the overhang kept the rain off and the baker sometimes left day-old bread.
+
+He rounded the corner and stopped.
+
+There.
+
+A girl sat hunched against the wall, knees drawn to her chest, dark hair matted and tangled. Too thin. Clothes patched and repatched. But alive. When she looked up at his footsteps, he saw the crooked front tooth—the one she'd chipped falling from a tree three years ago while he'd been teaching her to climb.
+
+Elena's eyes widened. She scrambled to her feet, backing against the wall. "I didn't steal nothing! The bread was left out, I thought—"
+
+"Elena." The name broke on his lips.
+
+She froze. Stared at him. Her face went through a dozen emotions—confusion, recognition, disbelief, and then something that made Perin's heart shatter.
+
+Hope.
+
+"Papa?" Her voice was so small. So uncertain. "Is it... is it really you?"
+
+Perin couldn't speak. Could only nod as tears streamed down his face—tears he hadn't been able to cry for two years, emotions he'd traded away coming back in a flood that threatened to drown him.
+
+Elena took one hesitant step forward. Then another. Then she was running, crashing into him, small arms wrapping around his waist as she sobbed into his chest.
+
+"You came back," she gasped between sobs. "You came back, you came back, I knew you would, Mama said you were dead but I *knew*—"
+
+"I'm sorry." Perin sank to his knees, clutching her tight, feeling every rib through her threadbare shirt. "Elena, I'm so sorry. I left you. I abandoned you. I—"
+
+"You're here now." She pulled back just enough to look at his face, her small hands grabbing his cheeks. "Your eyes are different. They're... you're *here*. You can see me again."
+
+He hadn't realized how hollow his gaze must have been before. How empty. But Elena had noticed. Of course she had. Children always saw what adults tried to hide.
+
+"I was sick," Perin said, the words tumbling out. "Something bad happened to me. I made a terrible mistake, and it took me away from you. But I'm better now. I'm me again."
+
+"The hollow sickness?" Elena's voice dropped to a whisper. "Like the soldiers? Mama said—before she died—she said maybe that's what happened to you."
+
+Perin's throat closed. "Your mother..."
+
+"Three months ago. The fever." Elena said it with the matter-of-fact tone of a child who'd seen too much death. "She told me to be brave. To stay alive until you came back. Because you would come back."
+
+"I'm here." Perin pulled her close again, breathing in the smell of her hair beneath the grime. "I'm here, and I'm never leaving you again. Never. I don't care what it costs."
+
+They stayed like that for a long moment, just holding each other. Then Elena pulled back, wiping her eyes with dirty hands.
+
+"Are you really better? Or will you go empty again?"
+
+The question cut through him. But she deserved honesty. "A man helped me. Freed me from the sickness. He says it won't come back unless I choose it. And I will *never* choose it again. Not for anything."
+
+Elena was quiet for a moment, her small fingers tracing the lines on his face—lines that hadn't been there before. Lines carved by two years of emptiness. "What was it like? Being hollow?"
+
+"Like drowning," Perin whispered. "But not caring that you couldn't breathe. I knew you existed. I could remember facts about you—your name, your age. But I couldn't remember *caring* about you. Couldn't feel the love. It was like watching my own life through a stranger's eyes."
+
+"That sounds horrible."
+
+"It was a mercy," Perin said bitterly. "That's what I thought when I signed the contract. That forgetting how much I loved you would be easier than watching you starve because I couldn't provide for you. I thought emptiness would hurt less than failing you every single day."
+
+"But you're back now." Elena's voice was fierce, protective. "You're here and you remember and you won't leave again."
+
+"Never." Perin pulled her close, feeling her heartbeat against his chest—real, alive, *his daughter*. "I swear it on everything I am. I will never leave you again."
+
+She burrowed into him, and he felt her body shaking with sobs she'd been holding back. "I missed you so much, Papa. Every day. Even when Mama said you might not come back. Even when the other children said you'd abandoned us. I knew—I *knew*—that if you could, you would come home."
+
+"You were right." Perin's voice broke. "I wanted to come home every second of those two years. But I couldn't. The man who helped me—he gave me back my will. My choice. Myself."
+
+Elena pulled back to look at him, tears streaking clean lines through the dirt on her face. "I want to thank him. Can we? Please? I need to tell him what he gave back to me."
+
+Perin thought of Cassian collapsed in the marketplace, Mira catching him before he hit the ground. The exhaustion in his eyes. The way he'd pressed coins into Perin's hands and told him to run, to live, to be free.
+
+"Someday," Perin said softly. "When it's safe. When I can look him in the eyes without falling apart from gratitude. But right now, we need to get you fed and somewhere safe. That's what he'd want. For us to live."
+
+Elena nodded, but her hand tightened in his. "I'll never forget what he did. Never."
+
+"Neither will I." Perin stood, pulling Elena up with him. His voice was thick. "He gave me my life back. Gave me *you* back. I don't know how to repay a debt like that. I don't even know where to start."
+
+"Then we'll figure it out together," Elena said simply. "When we're ready."
+
+"Together," Perin repeated, the word feeling sacred on his tongue. He squeezed her hand. "Come on. Let's find you some real food. And a bath. And maybe some clothes that aren't held together by hope and thread."
+
+Elena managed a small laugh—the sound like sunlight breaking through clouds. "Do we have money for all that?"
+
+Perin showed her the small pouch Cassian had given him. "Enough to start. We'll figure out the rest."
+
+They walked out of the alley together, Perin's carpenter's hands—too long empty of purpose—now wrapped protectively around his daughter's.
+
+Behind them, the shelter under the stairs stood abandoned.
+
+Elena wouldn't need it anymore.
+
+She had her father back.
+
+---
+
 Cassian woke in the healing ward with Torin staring at him.
 
 "You overextended yourself," the young man observed. "Your body couldn't sustain the mental exertion."
