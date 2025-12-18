@@ -158,7 +158,7 @@ Cassian took Perin back to the recruitment center, watching from a safe distance
 
 Perin met his eyes. "You're putting a lot of faith in a man you freed less than a week ago."
 
-"You stayed when you could have run. You brought your daughter into danger because you believe in this." Cassian's voice was quiet but firm. "That's worth more than years of proven loyalty. That's choice. Conscious, costly choice."
+"You stayed when you could have run. You came back to help when you could have disappeared with your daughter and never looked back." Cassian's voice was quiet but firm. "That's worth more than years of proven loyalty. That's choice. Conscious, costly choice."
 
 "Still." Perin looked uncomfortable. "I was hollow for two years. Did things I can barely think about now. Recruited people. Destroyed families. You're trusting me to help save lives when I spent years ruining them."
 
@@ -214,7 +214,7 @@ Tomorrow they'd try it on more than twenty.
 
 ---
 
-Evening found the team gathering in Perin's cellar hideout. Elena was asleep in the corner, wrapped in blankets, while the four adults sat around a makeshift table covered in maps and notes.
+Evening found the team gathering in Perin's cellar hideout. His daughter Elena was asleep in the corner, wrapped in blankets, while the four adults sat around a makeshift table covered in maps and notes.
 
 "Last chance to back out," Cassian said quietly. "What we're doing tomorrow is dangerous. Untested. Could fail spectacularly and get us all killed."
 

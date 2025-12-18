@@ -214,7 +214,7 @@ The Silent Market opened like a vast door swinging wide.
 
 It was different this time. Deeper. More expansive. Where before Cassian had seen abstract impressions of value—flickers and shimmers representing what things were worth—now he saw the entire web of exchange that connected the palace.
 
-Every person, every object, every obligation and debt and gift. Threads of value linking everything to everything else in an impossibly complex tapestry. The new coin was showing him something his coin couldn't—not just what things were worth, but how they grew. How they connected. How value propagated through time.
+Every person, every object, every obligation and debt and gift. Threads of value linking everything to everything else in an impossibly complex tapestry. The new coin was showing him something his coin couldn't—what things were worth, yes, but also how they grew. How they connected. How value propagated through time.
 
 At the center of it all, the presence waited.
 
@@ -224,7 +224,7 @@ Except now Cassian could see it wasn't singular. Two presences intertwined—his
 
 "Can I use both?" Cassian asked the vastness. "Can one person bond with two coins?"
 
-*It has never been attempted. But these are not normal times.* A pause, as if the presences were considering. *The one who cheats the Emblem of Oxen seeks others. If he collects all seven, he will reshape reality itself. Perhaps the only counter is for someone else to master multiple fragments.*
+*It has never been attempted. These are extraordinary times.* A pause, as if the presences were considering. *The one who cheats the Emblem of Oxen seeks others. If he collects all seven, he will reshape reality itself. Perhaps the only counter is for someone else to master multiple fragments.*
 
 "What would it cost? To bond with this second coin?"
 
@@ -232,7 +232,7 @@ Except now Cassian could see it wasn't singular. Two presences intertwined—his
 
 "I accept," Cassian said.
 
-The second coin flared hot in his hand—not burning, but warming like earth in sunlight. He felt it reaching toward him, its power seeking purchase in his mind. Looking for compatibility. For readiness.
+The second coin flared hot in his hand—warming like earth in sunlight. He felt it reaching toward him, its power seeking purchase in his mind. Looking for compatibility. For readiness.
 
 And then it bonded.
 
@@ -240,7 +240,7 @@ The sensation was different from when his first coin had chosen him. That had be
 
 Cassian felt his awareness expand. Part of him remained attuned to his first coin—seeing value, understanding exchange, calculating worth. But another part now sensed something different. *Potential*. The shape of what could be, given time and care.
 
-Together, the two perspectives created something new. He could see not just what things were worth now, but what they could *become*. Not just how to trade for outcomes, but how to cultivate them. How to plant seeds and nurture them into growth.
+Together, the two perspectives created something new. He could see what things were worth now, and what they could *become*. He understood how to trade for outcomes and how to cultivate them. How to plant seeds and nurture them into growth.
 
 *Now,* the presences whispered, *you have the tools to counter what has been built. Your first fragment shows you the network's structure. This fragment shows you how to grow identity. Together, they might restore what was taken.*
 
@@ -250,11 +250,11 @@ Together, the two perspectives created something new. He could see not just what
 
 "What price?"
 
-*The same as always. To restore identity to those made hollow, you would need to grow new connections in place of severed ones. That requires seed-material. Memories. Emotions. Identity. Pieces of yourself planted in their emptiness, nurtured until they take root and become something new—not yours, but rooted in yours.*
+*The same as always. To restore identity to those made hollow, you would need to grow new connections in place of severed ones. That requires seed-material. Memories. Emotions. Identity. Pieces of yourself planted in their emptiness, nurtured until they take root and become something new—rooted in yours, yet distinct.*
 
 Cassian's blood ran cold. "You mean I'd have to give them parts of myself? My memories, my identity?"
 
-*Not copies. Not gifts. Actual pieces, transferred and transformed. You would lose them. They would gain them as seeds. And with time and cultivation, those fragments would grow into their own authentic identity.*
+*Actual pieces, transferred and transformed. You would lose them. They would gain them as seeds. And with time and cultivation, those fragments would grow into their own authentic identity.*
 
 "That's..." Cassian struggled for words. "That's still trading away pieces of myself."
 
@@ -394,7 +394,7 @@ It was a terrible plan. Full of risks and desperate hopes. But Mira had made her
 
 He navigated through twisting streets, past shuttered shops and sleeping houses. The city watch was light tonight—most guards were on the walls, watching for external threats. No one expected the threat to already be inside.
 
-As Cassian neared the aqueduct ruins, the bond suddenly *flared*. Not stronger, but more intense. Like someone had just touched the coin.
+As Cassian neared the aqueduct ruins, the bond suddenly *flared*. The intensity sharpened—like someone had just touched the coin.
 
 Draven had it. The meeting had happened.
 
@@ -428,11 +428,11 @@ Mira stood still...unsure what to make of his words.
 
 Hope flickered across Mira's face. "You will?"
 
-"Absolutely. I'll give him back his memories, his emotions, his sense of self. Every piece you wanted restored." Draven's smile widened, but it never reached his eyes. "The problem, dear girl, is that you only asked me to revive him. Not to *keep* him in a revived status."
+"Absolutely. I'll give him back his memories, his emotions, his sense of self. Every piece you wanted restored." Draven's smile widened, but it never reached his eyes. "The problem, dear girl, is that you only asked me to revive him, and I will—temporarily."
 
 Mira's face went white. "What?"
 
-"This restoration will be temporary. Without ongoing work—the kind of careful cultivation Cassian would need weeks or months to learn—your brother will slip back into hollowness within days. Maybe hours." Draven tilted his head. "You see, when identity is torn away, it leaves scars. The vessel wants to be empty again. It's easier. More comfortable. Torin will get his memories back, feel all his pain and grief flooding in at once, and then slowly lose them again as his mind retreats back into the peace of emptiness."
+"This restoration won't last. Without ongoing work—the kind of careful cultivation Cassian would need weeks or months to learn—your brother will slip back into hollowness within days. Maybe hours." Draven tilted his head. "You see, when identity is torn away, it leaves scars. The vessel wants to be empty again. It's easier. More comfortable. Torin will get his memories back, feel all his pain and grief flooding in at once, and then slowly lose them again as his mind retreats back into the peace of emptiness."
 
 "No," Mira whispered. "You're lying."
 

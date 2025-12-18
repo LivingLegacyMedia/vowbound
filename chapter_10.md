@@ -46,7 +46,7 @@ He had no way to know. And that uncertainty was worse than certainty would have 
 
 "Bastard," Cassian muttered—though he wasn't sure if he meant Draven or himself.
 
-*You're asking the wrong questions,* the presence seemed to whisper. Not in words, but in impressions that bloomed directly in his mind.
+*You're asking the wrong questions,* the presence seemed to whisper. Impressions bloomed directly in his mind, bypassing language entirely.
 
 "Then what's the right question?" Cassian said aloud.
 
@@ -68,7 +68,7 @@ Mira found him an hour later, still sitting in the square, lost in thought. She 
 
 "Torin's sleeping," she finally said. "The village healer says his body is fine. But his mind... she doesn't know. He can't remember basic things. His mother's name. What year it is. What he used to care about." Her voice dropped to barely a whisper. "He asked me who I was. Again. As if the first time in the tent had never happened. Like every introduction is new."
 
-Cassian heard something in her voice. Not just grief, but doubt. "Mira—"
+Cassian heard something in her voice—grief mingled with doubt. "Mira—"
 
 "I keep wondering," she said, staring at her hands, "if I did the right thing. Asking you to save him. He's alive, yes. But is this..." She gestured helplessly. "Is this even him anymore? Or is it just his body, walking around with someone else inside? Someone I don't know?"
 

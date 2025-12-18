@@ -16,7 +16,7 @@ The question hung in the air. Draven's smile didn't waver, but something flicker
 
 "Because," he said slowly, "I prefer bargains to the use of force. The Law favors them. Fewer... complications." He stepped closer. "But don't mistake preference for necessity. I can and will take that coin by force if you push me."
 
-Cassian felt it then—not through the Coin of Heads' power, but through simple observation. Draven wanted to avoid a fight. Not out of mercy. Out of pragmatism. Something about forcing the transfer would cost more than he wanted to pay.
+Cassian felt it then—not through the Coin of Heads' power, but through simple observation. Draven wanted to avoid a fight.
 
 "You're worried about the bond," Cassian said. "If you kill me now, my coin will likely not bond with the one who murdered its previous owner."
 
@@ -54,7 +54,7 @@ The coin was headed straight for him. It hit Korrin's palms with a soft slap.
 
 And everything changed.
 
-Korrin's body convulsed. The severance began—not just his tether, but dozens of others throughout the circle. The Hollow collapsed in waves as their bindings to Draven's network shattered. Throughout the aqueduct, empty people suddenly screamed as something fundamental broke inside them.
+Korrin's body convulsed. The severance began—his tether first, then dozens of others throughout the circle, spreading like cracks through ice. The Hollow collapsed in waves as their bindings to Draven's network shattered. Throughout the aqueduct, empty people suddenly screamed as something fundamental broke inside them.
 
 They were freed. The tethers cut. The forced control ended. Awareness returned to vessels that had been empty for months or years.
 
@@ -68,13 +68,13 @@ But Korrin's hands closed tighter around the coin. His hollow eyes flickered—o
 
 The gray space had opened around Cassian—the Silent Market, the place between places where the Law itself could be bargained with directly.
 
-The space was vast and empty. Not dark, not light. Just... neutral. And in the center, waiting as it always waited, was the presence he'd felt before. Not a person. Not even a consciousness, exactly. Just the Law itself, ready to enforce any exchange properly offered.
+The space was vast and empty. Neutral. And in the center, waiting as it always waited, was the presence he'd felt before. Something beyond personhood, beyond consciousness as he understood it. The Law itself, ready to enforce any exchange properly offered.
 
 His father's notes had mentioned this—the difference between bargaining through a coin and bargaining directly with the Law. How possession and bond were separate things. How one could be traded without the other, if the terms were precise enough.
 
 Cassian took a breath and spoke into the emptiness: "If I trade possession—just possession, not my bond with the coin—what could I get?"
 
-The answer came not in words, but in knowledge that simply appeared in his mind: Physical contact with one of the Hollow. Nine seconds of unbroken contact to sever them from the network.
+Knowledge flooded his mind: Physical contact with one of the Hollow. Nine seconds of unbroken contact to sever them from the network.
 
 Nine seconds. Korrin had resisted Draven's commands for ten seconds before. It was possible. Barely.
 
@@ -120,7 +120,7 @@ He turned toward Cassian.
 
 Nine. Ten.
 
-The severance completed. Throughout the aqueduct, the freed Hollow gasped as their restoration finalized. Not just freed from control—*restored*. The emptiness that had consumed them for years suddenly filled again. Memories, emotions, identities came flooding back. They were human again.
+The severance completed. Throughout the aqueduct, the freed Hollow gasped as their restoration finalized. The emptiness that had consumed them for years suddenly filled again. Memories, emotions, identities came flooding back. They were human again—truly restored, freed from control entirely.
 
 Draven was close now, hand outstretched, fury twisting his features.
 
@@ -144,7 +144,7 @@ Draven's smile was terrible. "You think numbers matter?"
 
 He opened his golden locket.
 
-Light erupted—not warm, but cold and golden like a predator's eyes. The Coin of Oxen blazed within its cage, and Draven's body *changed*. Not growing larger, but condensing, compacting. His muscles didn't swell—they hardened, becoming dense as iron. The air around him shimmered with barely-restrained force.
+Light erupted—cold and golden like a predator's eyes. The Coin of Oxen blazed within its cage, and Draven's body *changed*. His form condensed, compacting. His muscles hardened, becoming dense as iron. The air around him shimmered with barely-restrained force.
 
 The first freed man reached him—a soldier who'd been hollow for a decade but still remembered combat training. He threw a perfect punch, years of muscle memory driving his fist toward Draven's jaw.
 
@@ -164,7 +164,7 @@ He turned to look at her, and she stumbled back, terror flooding her newly-resto
 
 He moved.
 
-Not like a man—like a landslide. One moment standing still, the next closing the distance in a blur of motion. His palm struck the woman's sternum with surgical precision. The force lifted her off her feet, sent her flying backward into the aqueduct wall. She hit with a wet thump and slid down, gasping, ribs shattered.
+Like a landslide—one moment standing still, the next closing the distance in a blur of motion. His palm struck the woman's sternum with surgical precision. The force lifted her off her feet, sent her flying backward into the aqueduct wall. She hit with a wet thump and slid down, gasping, ribs shattered.
 
 The man with the pipe swung desperately. The metal bar connected with Draven's forearm, hard enough to break bone.
 
@@ -194,7 +194,7 @@ Through the chaos, Mira saw her opportunity. The Coin of Seeds—Draven had drop
 
 "This is what you traded your humanity for?" Draven called out, surveying the carnage. Blood spattered his fine coat, but he wore it like decoration. "The chance to die with your emotions intact? I gave you peace. Purpose. And you throw it away for this—pain, fear, broken bones. Was it worth it?"
 
-One of the fallen—the woman with shattered ribs—sobbed. Not from pain. From the overwhelming flood of feeling after years of nothing. Joy and agony mixed together, indistinguishable.
+One of the fallen—the woman with shattered ribs—sobbed. The overwhelming flood of feeling after years of nothing: joy and agony mixed together, indistinguishable.
 
 "Korrin!" Cassian shouted, understanding the tactical situation with horrible clarity. "Get them out of here! You can't fight him like this!"
 
@@ -276,7 +276,7 @@ They left through the back of the cabin, into the meadow grass that whispered in
 
 "That's it? Just 'I know'?"
 
-"What do you want me to say?" Cassian stopped, met her eyes. "That I forgive you? I don't. Not yet. Maybe not ever. But I understand why you did it. And I need you alive if we're going to stop Draven. So we work together. Maybe someday I'll forgive you. Or maybe I won't. But right now, survival matters more than feelings."
+"What do you want me to say?" Cassian stopped, met her eyes. "That I forgive you? I don't—not yet, maybe not ever. But I understand why you did it. And I need you alive if we're going to stop Draven. So we work together. Maybe someday I'll forgive you. Or maybe I won't. But right now, survival matters more than feelings."
 
 Mira nodded slowly. "Okay." She was quiet for a moment, then: "When you made your trade—when you freed them all—was Torin..." She trailed off, as if afraid to finish the question.
 
@@ -290,9 +290,9 @@ They continued walking. The meadows were behind them now, and they moved toward 
 
 The forest welcomed them with early morning birdsong and dappled sunlight filtering through the canopy. Cassian had walked this path before—had run through these woods just hours earlier when fleeing the capital. But something was different now.
 
-The trees felt *closer*. Not threatening, but present. Aware.
+The trees felt *closer*. Present. Aware.
 
-He stopped, one hand against an oak trunk, and felt... something. Not quite warmth. Not quite a pulse. But a sense of *life* flowing beneath the bark. Growth pushing upward through roots and branches. Patient, relentless, ancient.
+He stopped, one hand against an oak trunk, and felt... something. A sense of *life* flowing beneath the bark—something between warmth and pulse. Growth pushing upward through roots and branches. Patient, relentless, ancient.
 
 "You alright?" Mira asked, stopping a few paces ahead.
 
@@ -344,7 +344,7 @@ Cassian's breath slowed. He felt the Coin of Seeds thrumming in his right hand, 
 
 What if...?
 
-He focused on the seedling. Imagined its growth accelerating. Not just faster, but *smarter*. Roots finding the richest soil, stem bending toward the best light. Growth guided by knowledge.
+He focused on the seedling. Imagined its growth accelerating—smarter growth, guided by instinct. Roots finding the richest soil, stem bending toward the best light. Growth guided by knowledge.
 
 Seeds and Heads. Growth and Understanding.
 

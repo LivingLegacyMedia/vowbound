@@ -80,11 +80,11 @@ Cassian knelt before Torin, both coins warming in his pockets. He let his percep
 
 The Coin of Heads showed him the damage: neural pathways severed, emotional connections disrupted, memories stored but inaccessible. Like a library where all the books existed but the index had been destroyed. Everything was there—just scattered, isolated, unable to integrate. He could see Torin's memories of his sister—dozens of them, bright and vivid—but they floated independently, disconnected from the emotional context that would make them meaningful. Torin remembered *events* with Mira, but not the *feeling* of having a sister.
 
-The Coin of Seeds showed him something else: potential. Raw, unformed potential. Like a burned forest where new shoots were already trying to push through ash. The capacity for growth, for reconnection, for rebuilding what had been lost. Not through restoration—that ship had sailed when Cassian severed the original tether. But through cultivation. Patient, deliberate growth of new pathways, new connections, new ways of being human.
+The Coin of Seeds showed him something else: potential. Raw, unformed potential. Like a burned forest where new shoots were already trying to push through ash. The capacity for growth, for reconnection, for rebuilding what had been lost. The ship had sailed on restoration—that chance vanished when Cassian severed the original tether. But cultivation remained possible. Patient, deliberate growth of new pathways, new connections, new ways of being human.
 
 Cassian reached out carefully with the Coin of Seeds, feeding the barest thread of energy into one of those nascent connections—a pathway between memory and emotion, trying to link what Torin remembered about Mira to how he should *feel* about her.
 
-For a moment, something flickered in Torin's eyes. Recognition. Not just of his sister's face, but of what she *meant*.
+For a moment, something flickered in Torin's eyes. Recognition—of his sister's face, yes, but deeper: what she *meant*.
 
 Then it faded, the connection too fragile to sustain itself without constant reinforcement.
 
@@ -142,7 +142,7 @@ Torin considered this. "But the 'real me' doesn't exist anymore. He was destroye
 
 Torin looked at him. "You think the desire to understand my own gaps is evidence of humanity?"
 
-"I think it's evidence that you're not as content with this state as you believe you are. If you were truly satisfied being this way, you wouldn't be curious about what you're missing. You'd just... exist. Efficiently. Without questions."
+"I think it proves you're less content with this state than you believe. If you were truly satisfied being this way, you wouldn't be curious about what you're missing. You'd simply exist. Efficiently. Without questions."
 
 For a long moment, Torin was silent. Then: "That's annoyingly logical."
 
@@ -243,7 +243,7 @@ Cassian met his gaze steadily. "Not the same way. Draven will have adapted his d
 
 "Spoken like someone avoiding the real question," Therin said bluntly. "Can you free more Hollow or not?"
 
-"Yes," Cassian said, choosing his words carefully. "But not through grand gestures. Not through infiltrating camps and freeing hundreds at once. That door is closed. What remains is slower work—surgical strikes against Draven's agents, preventing new conversions, freeing individuals when opportunities arise. It's not as dramatic. But it's sustainable. And it's how we actually win this war."
+"Yes," Cassian said, choosing his words carefully. "But we'll need patience. Infiltrating camps and freeing hundreds at once—that door is closed. What remains is slower work—surgical strikes against Draven's agents, preventing new conversions, freeing individuals when opportunities arise. Less dramatic, perhaps, but sustainable. And that's how we actually win this war."
 
 The General's face darkened, but he couldn't argue with the logic.
 
@@ -349,7 +349,7 @@ And all he had was two relics, a broken man to heal, a betrayer to train, and no
 
 But he'd accepted it. Knelt before five kings. And now he had to figure out how to deserve the title.
 
-The coins pulsed in his hands—one showing him value and exchange, the other showing him growth and potential. Together, they revealed a path forward. Not through grand gestures, but through persistent, methodical work. Hunting preachers. Healing broken people. Building resistance one small act at a time.
+The coins pulsed in his hands—one showing him value and exchange, the other showing him growth and potential. Together, they revealed a path forward—through persistent, methodical work. Hunting preachers. Healing broken people. Building resistance one small act at a time.
 
 It wasn't heroic. But it was honest. And it might actually work.
 
@@ -363,7 +363,7 @@ And every day after that, he'd hunt. City by city. One victim at a time.
 
 Cassian set down the coins, their warmth fading from his palms. 
 
-Tomorrow, the real work began. Not the dramatic gestures that earned titles and applause, but the patient, invisible labor of rebuilding what Draven had broken—one mind, one city, one desperate soul at a time.
+Tomorrow, the real work began—the patient, invisible labor of rebuilding what Draven had broken, one mind, one city, one desperate soul at a time.
 
 He closed his eyes and felt the weight of the Covenant's expectations settle around him like a cloak.
 
