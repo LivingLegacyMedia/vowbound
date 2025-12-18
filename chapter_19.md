@@ -68,15 +68,19 @@ Cassian felt the thread pulse faintly, as if in confirmation. "That's it," he sa
 
 Both men stared at him.
 
-"That's suicide," Drenneth said flatly. "You're barely recovered from the last extraction. You have no intelligence about the interior layout. And Draven is almost certainly waiting for exactly this response."
+Drenneth said flatly, "You're barely recovered from the last extraction. You have no intelligence about the interior layout. And Draven is almost certainly waiting for exactly this response."
 
-"I know." Cassian met his eyes. "But it's also my only option. If I wait for perfect intelligence, for optimal conditions, Draven will have already broken her or moved her somewhere I can't track."
+"He's waiting for me to act emotionally, yes." Cassian's voice steadied as he thought it through. "But that's why this approach works. He expects panic or caution—either a reckless charge or careful intelligence gathering. Walking in to negotiate subverts both expectations."
 
-"Or killed her," Drenneth said. "Have you considered that? That she's bait for a trap, and the moment you commit, he springs it?"
+"How is walking into his stronghold not reckless?" Drenneth demanded.
 
-"Of course I've considered it." Cassian's voice was tight. "But I'm going anyway. With or without your support."
+"Because I'm not going to fight him." Cassian met his eyes. "Draven values converts more than corpses. He wants me to choose his side, which means he'll talk. And while he talks, I learn—about his defenses, his plans, his blind spots. The Coin of Heads shows me value patterns, what people truly want. Five minutes of conversation with Draven will teach me more than five days of surveillance."
 
-The King studied him for a long moment, then nodded slowly. "I thought you'd say that."
+"And if you're wrong?" Drenneth asked. "If he just captures you the moment you walk in?"
+
+"Then I'll use what I learned when we escaped the facility." Cassian touched the Coin of Seeds. "Between the two coins, I can perceive opportunities and create them. Plant seeds of doubt in his people, accelerate weaknesses in structures, negotiate my way through gaps in his authority." He paused. "I'm not the same person who went into that recruitment center. I've been learning. Growing. Every confrontation teaches me something new."
+
+The King studied him for a long moment, then said, "You've proven yourself very resourceful, Cassian. I don't want to lose you, but I trust your judgment."
 
 "Then help me," Cassian said. "Your intelligence network—has anyone tracked where Draven might be operating from? Where he'd take prisoners?"
 
@@ -124,9 +128,9 @@ Torin took the key, studying it with the same analytical focus he applied to eve
 
 "Probability of success?"
 
-"Low," Cassian admitted. "But I have to try."
+Cassian hesitated, then chose honesty. "Hard to say. But I have variables in my favor—Draven wants to recruit me, not kill me. And I'm bringing knowledge he doesn't expect me to have."
 
-Torin was quiet for a moment, processing. Then: "Logical division of labor. You're emotionally compromised regarding Mira's safety. Attempting both intelligence gathering and rescue operation simultaneously would reduce effectiveness of both. Separation increases overall probability of positive outcome."
+Torin was quiet for a moment, processing. Then: "Division of labor. Attempting both intelligence gathering and rescue operation simultaneously would reduce effectiveness of both. Separation increases overall probability of positive outcome."
 
 "Exactly," Cassian said, relieved Torin understood.
 
@@ -144,15 +148,15 @@ Drenneth watched him go, then turned to Cassian. "You're really doing this."
 
 "Then at least let me give you support. I'll position a squad near the terminus—out of sight, but close enough to intervene if things go wrong."
 
-Cassian shook his head. "Draven will sense them. He'll know I didn't come alone, and it'll give him an excuse to refuse any negotiation. Or worse—activate his Hollow network immediately as retaliation."
+Cassian considered it, then shook his head. "Draven will sense them through his network. Anyone within a half-mile radius who's hollow or connected to someone hollow becomes his eyes and ears. He'll know I didn't come alone, and it gives him leverage to refuse negotiation."
 
-"So you're going completely alone? Into a fortified position held by a man with two coins and an army of Hollow?" Drenneth's expression was grim. "That's suicide, Cassian."
+"So you're going completely alone? Into a fortified position held by a man with two coins and an army of Hollow?" Drenneth's expression was grim.
 
-"Maybe. But it's the only approach that might work." Cassian met his eyes. "Draven wants to talk. To recruit me, or at least convince me his vision is right. If I show up with soldiers at my back, I'm proving I'm already his enemy. If I come alone, I'm showing I'm willing to listen—even if it's a lie."
+"Not helpless." Cassian tapped the coins in his pocket. "I'm bringing tools he can't fully counter. The Coin of Heads lets me see through deceptions, understand true motives, find weaknesses in his arguments. The Coin of Seeds gives me options for escape or leverage he won't anticipate." He met Drenneth's eyes. "And I'm bringing something more dangerous than either coin—the willingness to listen. Draven wants to explain himself, justify his vision. People always reveal more than they intend when they think they're winning."
 
 The King nodded slowly. "There's wisdom in that. Draven respects power, but he values converts more. Someone who chooses to join him willingly is worth more to his cause than another Hollow servant."
 
-"Exactly," Cassian said. "So I go alone. I listen. I learn what I can. And I buy time for Torin to finish researching whatever your father discovered."
+"Exactly," Cassian said. "So I go alone. I listen. I learn what I can about his plans, his weaknesses, his true goals. And I buy time for Torin to finish researching whatever your father discovered."
 
 Drenneth didn't look happy, but he nodded. "At least take a signal flare. If everything goes wrong, light it. I'll have people watching from a distance—far enough that Draven won't sense them as a threat, close enough to see a flare. They won't be able to breach and extract you, but they can create a distraction. Give you a chance to run."
 

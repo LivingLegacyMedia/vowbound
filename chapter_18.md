@@ -342,17 +342,17 @@ The King and Drenneth exchanged a glance.
 
 "Which is exactly what he wants," the King said. "He's baiting you, Cassian. Make you desperate enough and you'll walk into whatever trap he's prepared."
 
-"I know." Cassian met his eyes. "But I'm going anyway."
+"I know." Cassian met his eyes. "But there has to be a way to save her without risking everything else."
 
-"Not without a plan, you're not." The King's voice hardened. "I didn't risk my political standing rescuing you just to watch you throw your life away on a suicide mission. You don't know where she is. You don't know what defenses he has. You're exhausted, battered, and operating on emotion instead of strategy."
+"Not without a plan, there's not." The King's voice hardened. "I didn't risk my political standing rescuing you just to watch you throw your life away on an emotional impulse. You don't know where she is. You don't know what defenses he has. You're exhausted, battered, and operating on feeling instead of strategy."
 
-"Then what do you suggest?" Cassian's frustration bled through. "I sit here and wait? Have tea while Draven turns her against me?"
+Cassian took a breath, forcing himself to think past the panic. "You're right. I need intelligence first. And I need to recover enough to actually use the coins effectively." His jaw tightened. "But I also need to move faster than Drenneth's network can gather information. Draven knows we'll be cautious—he's counting on it. Every day we wait is another day he has to break her or turn her."
 
-"I suggest you rest. Recover. Let Drenneth's intelligence network do its job." The King stood. "And if you still insist on going after her—and I suspect you will—at least do it when you're strong enough to have a chance of success."
+"Then what do you suggest?"
 
-Cassian wanted to argue. Wanted to shout that every minute mattered, that waiting was surrender.
+Cassian closed his eyes, deep in thought. "I don't know yet. All I know is, my coins are not the same as his. They have abilities he doesn't have. So the way for me to outsmart him is to rely on their unique power. I'll spend time with them tonight. Find some way to track where they took her."
 
-But the King was right. He was barely standing. Rushing in now would accomplish nothing except getting himself killed or captured.
+The King nodded slowly. "There's wisdom in that. Use your unique advantages instead of fighting Draven's fight." He stood. "Get some sleep. Tomorrow, we'll see what your coin can show us."
 
 "One day," Cassian said, his voice tight. "I'll give you one day to find something. After that, I'm going. With or without your help."
 

@@ -231,7 +231,7 @@ The King studied him for a long moment. Then, reluctantly: "If you're determined
 
 "That's suicide."
 
-"Maybe." Cassian folded the letter carefully. "But refusing would show weakness. He'd know I'm afraid. And he'd use that."
+Cassian met the King's eyes. "It's calculated risk. Draven wants to recruit me, not kill me—I'm more valuable as a convert than a corpse. He thinks he can convince me his way is right, which means he'll negotiate rather than attack. That gives me leverage." He folded the letter carefully. "And while we talk, I'll be reading him—learning his weaknesses, understanding how he thinks. The coin reveals what people value. I'll see what he truly wants from me."
 
 The King's expression was grim. "And if you walk into that waystation and don't come back?"
 

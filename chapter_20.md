@@ -64,15 +64,15 @@ But he'd still need power to match Draven. Even with 800 Hollow temporarily disr
 
 "And if they refuse?"
 
-"Then I fight with whatever I have." Cassian's jaw tightened. "But if enough accept... I might have power Draven can't match. He draws from enslaved victims. I'd draw from willing supporters."
+"Then I adapt." Cassian's jaw tightened. "But I'm betting on a fundamental difference: Draven draws power from enslaved victims who have no choice. If I can draw from willing supporters—even temporarily—that creates a different kind of strength. One he's never had to counter."
 
 "You're talking about challenging him to single combat," Drenneth said. "Physically."
 
-"Why not? He'll expect negotiation, clever tactics. He won't expect a direct challenge." Cassian's jaw tightened. "And while he's distracted fighting me, Torin and Perin sever the Emissaries. Even if it's temporary, even if it creates chaos—it drains his power in the moment that matters."
+"I'm talking about creating conditions he can't predict." Cassian met his eyes. "He'll expect negotiation, clever tactics, maybe an ambush. He won't expect me to turn his own method against him. And while he's focused on me, Torin and Perin sever his emissaries. Even if the severance is only temporary, the drain on his power will weaken him when it matters most."
 
-"That's insane," Drenneth muttered. But he was almost smiling. "Completely insane."
+Drenneth studied him for a long moment. "That's actually brilliant. Risky as hell, but brilliant."
 
-"My father tried wisdom," Cassian said. "The King's father tried strength. Both died alone. Maybe what works is fighting together—with people who choose to stand with you."
+"My father tried wisdom alone," Cassian said. "The King's father tried strength alone. Both died isolated. Maybe what works is building something new—fighting with people who choose to stand with you instead of servants who have no choice."
 
 The King nodded slowly. "Build what Kane can't." He looked at Cassian. "Make the offer. Give them the choice."
 
@@ -112,17 +112,17 @@ She stood across from him, looking exhausted but alert. Her eyes widened. "Cassi
 
 "Still in his camp?" He already knew the answer, could feel it through their connection.
 
-"My oath binds me." Her voice was steady, but he could sense her fear bleeding through the bond. "Cassian, I've felt everything through our connection. You're going to die tomorrow."
+"My oath binds me." Her voice was steady, but he could sense her fear bleeding through the bond. "Cassian, I've felt everything through our connection. The plan you're building—it's dangerous."
 
-"Maybe."
+"It is." He met her eyes in this strange mental space. "Draven has the advantage in raw power, yes. But he's also predictable. He thinks in terms of domination and control. The network Torin found represents concentrated power but also concentrated vulnerability."
 
-"You against his entire network?" She stepped closer. Here in this mental space, he could feel her more clearly than he had in weeks. "He has thousands of Hollow feeding him power. That's not a fight. That's suicide."
+"You against his entire network?" She stepped closer. Here in this mental space, he could feel her more clearly than he had in weeks. "He has thousands of Hollow feeding him power."
 
-"It's the only move I have." He reached out, and their hands met—not physically, but in the strange half-real way of this place. "Maybe others will agree to help. And if they don't...at least my sacrifice will have meaning."
+"It's the only move I have." He reached out, and their hands met—not physically, but in the strange half-real way of this place. "Maybe others will agree to help. And if they don't...at least my sacrifice will inspire others. It will have meaning."
 
 Through their connection, he felt her anguish. "I don't want meaning. I want you alive."
 
-"I want that too." He pulled her closer. "But I can't run. Not when there's even the smallest chance this works."
+"I want that too." He pulled her closer. "But I can't run. Not when there's a chance this will work."
 
 "Then I'll be trapped here. Watching through this connection as he kills you. Unable to do anything."
 
