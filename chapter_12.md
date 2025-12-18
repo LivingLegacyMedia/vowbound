@@ -144,19 +144,71 @@ Draven's smile was terrible. "You think numbers matter?"
 
 He opened his golden locket.
 
-The Coin of Oxen blazed with power. Draven's form seemed to swell, muscles rippling with unnatural strength. When the first freed person reached him—a man who'd been hollow for a decade—Draven caught his fist with one hand and threw him back into three others. They went down like wheat before a scythe.
+Light erupted—not warm, but cold and golden like a predator's eyes. The Coin of Oxen blazed within its cage, and Draven's body *changed*. Not growing larger, but condensing, compacting. His muscles didn't swell—they hardened, becoming dense as iron. The air around him shimmered with barely-restrained force.
 
-"The Coin of Oxen grants strength beyond mortal limits," Draven said, his voice resonating with power. "It's also made me unkillable in direct combat."
+The first freed man reached him—a soldier who'd been hollow for a decade but still remembered combat training. He threw a perfect punch, years of muscle memory driving his fist toward Draven's jaw.
 
-He moved. Not like a man—like a force of nature. Another attacker went flying. Then another. Bones broke. People screamed.
+Draven caught the fist in mid-air.
 
-Through the chaos, Mira saw her opportunity. The Coin of Seeds—Draven had dropped it when the first wave of restored Hollow attacked. It glinted in the torchlight, forgotten in the rubble. She darted forward, snatched it, and tucked it into her belt before anyone noticed.
+The sound was like a tree branch snapping. The man's wrist shattered in Draven's grip, bones splintering audibly. Draven didn't even flinch. He simply pivoted, lifting the screaming man by his broken arm and *hurled* him like a sack of grain. The soldier flew fifteen feet, crashed into three others, and they all went down in a tangle of limbs. One didn't get up—his head had struck a stone at a bad angle.
 
-"Korrin!" Cassian shouted. "Get them out of here! You can't fight him like this!"
+"The Coin of Oxen grants strength beyond mortal limits," Draven said, his voice resonating with inhuman power. "But strength is more than force. It's durability. Resilience. The ability to withstand anything you can dish out."
 
-Korrin, seeing his fellows broken and bleeding, made a quick tactical assessment. He grabbed a support beam and wrenched it free—the ancient aqueduct groaned, and a section of stone archway collapsed between them and Draven. Rubble and dust filled the air.
+Two more attacked—a woman with a chunk of rubble, a man with a length of pipe. The woman swung first. The stone connected with Draven's temple with a sickening *crack*.
 
-"Everyone, fall back!" Korrin shouted through the chaos. "We need weapons, strategy—" He looked at Cassian through the settling dust. "Go! We'll regroup, but you need to leave from here. He'll be after you most of all."
+Draven's head barely moved.
+
+He turned to look at her, and she stumbled back, terror flooding her newly-restored face. There was no blood. No bruise. The impact that should have caved in his skull had left nothing but a faint red mark already fading.
+
+"My turn," Draven said.
+
+He moved.
+
+Not like a man—like a landslide. One moment standing still, the next closing the distance in a blur of motion. His palm struck the woman's sternum with surgical precision. The force lifted her off her feet, sent her flying backward into the aqueduct wall. She hit with a wet thump and slid down, gasping, ribs shattered.
+
+The man with the pipe swung desperately. The metal bar connected with Draven's forearm, hard enough to break bone.
+
+The pipe bent.
+
+Draven's arm didn't.
+
+He caught the pipe, yanked it from the man's grip, and reversed it in a single fluid motion. The makeshift weapon whistled through the air and slammed into the man's knee. The joint buckled backward with a crunch of cartilage. The man collapsed, screaming.
+
+Four more rushed him together, trying to overwhelm with numbers. Draven didn't retreat. He waded into them like a shark into shallow water. An elbow to one man's jaw—teeth flying, head snapping back. A kick that caught another in the ribs, lifting him clear off the ground. A casual backhand that sent a third spinning, blood spraying from his nose.
+
+The fourth got his hands around Draven's throat, trying to choke him. Draven didn't bother prying the hands away. He just stood there, looking bored, as the man squeezed with all his strength. Draven's windpipe should have collapsed. His eyes should have bulged. He should have gasped for air.
+
+Instead, he smiled.
+
+"Thirty seconds," Draven said conversationally, his voice unhindered despite the crushing grip on his throat. "That's how long a strong man can maintain a chokehold at full pressure. You're at ten seconds now. Fifteen. Your hands are trembling. Twenty. Your forearms are burning. Twenty-five."
+
+The man's grip faltered, exhaustion overwhelming desperation.
+
+Draven reached up, plucked the hands off his throat like removing a scarf, and headbutted the man so hard his nose exploded. The man dropped like his strings had been cut.
+
+Through it all, Draven hadn't even breathed hard.
+
+Korrin watched his fellows fall—some unconscious, some broken, some dead. A decade of tactical experience warred with the rage of newfound freedom. Rage wanted to charge. Experience knew better.
+
+Through the chaos, Mira saw her opportunity. The Coin of Seeds—Draven had dropped it when the first wave of restored Hollow attacked. It glinted in the torchlight, forgotten in the rubble. She darted forward, low and fast, snatched it, and tucked it into her belt before anyone noticed.
+
+"This is what you traded your humanity for?" Draven called out, surveying the carnage. Blood spattered his fine coat, but he wore it like decoration. "The chance to die with your emotions intact? I gave you peace. Purpose. And you throw it away for this—pain, fear, broken bones. Was it worth it?"
+
+One of the fallen—the woman with shattered ribs—sobbed. Not from pain. From the overwhelming flood of feeling after years of nothing. Joy and agony mixed together, indistinguishable.
+
+"Korrin!" Cassian shouted, understanding the tactical situation with horrible clarity. "Get them out of here! You can't fight him like this!"
+
+Korrin's jaw clenched. Every instinct screamed to stand his ground, to face this monster who'd enslaved him for years. But he wasn't hollow anymore—he could feel fear again. Could feel the weight of responsibility for the people around him. Could calculate odds and recognize hopeless battles.
+
+He made the hard choice.
+
+He grabbed a support beam and wrenched it free with desperate strength. The ancient aqueduct groaned in protest. Stone cracked. The archway above shuddered.
+
+"Everyone back!" Korrin roared. "Fall back NOW!"
+
+He pulled again, and the beam gave way completely. The arch collapsed in a cascade of stone and dust, a wall of rubble falling between them and Draven.
+
+"Everyone, fall back!" Korrin shouted through the chaos. He looked at Cassian through the settling dust. "Go! We'll regroup, but you need to leave from here. He'll be after you most of all."
 
 Draven was already cutting through the restored people like they were nothing, moving toward Cassian with terrible purpose.
 
