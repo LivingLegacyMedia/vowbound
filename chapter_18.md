@@ -1,4 +1,4 @@
-# Chapter 17: The Price of Rescue
+# Chapter 18: The Price of Rescue
 
 Cassian ran north through the maze of alleys, his breath coming in ragged gasps. Behind him, whistles pierced the night—sharp, coordinated signals. The Society guards were organizing faster than he'd expected.
 

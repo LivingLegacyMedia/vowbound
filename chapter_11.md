@@ -1,4 +1,4 @@
-# Chapter 10: Debt of the Dead
+# Chapter 11: Debt of the Dead
 
 They brought Torin back to the palace in the gray hours before dawn.
 

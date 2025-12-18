@@ -1,4 +1,4 @@
-# Chapter 16: Severance
+# Chapter 17: Severance
 
 The cell was cold stone and iron bars, ten feet square, smelling of rust and fear. No windows. A single torch in the hallway beyond cast shadows that crawled across the walls.
 

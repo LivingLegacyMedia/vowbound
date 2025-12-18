@@ -1,4 +1,4 @@
-# Chapter 20: A Lost Fight
+# Chapter 21: A Lost Fight
 
 Three thousand heartbeats pulsed through Cassian's veins—none of them his own.
 

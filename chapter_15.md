@@ -1,4 +1,4 @@
-# Chapter 14: The Weight of Responsibility
+# Chapter 15: The Weight of Responsibility
 
 The healing ward was quiet in the early morning. Torin sat by the window, the Coin of Seeds warm in his palm as he practiced nurturing new connections in his fragmented mind. His progress was slow but visible. Yesterday he'd linked three separate memories into a coherent narrative. Today he was attempting four.
 

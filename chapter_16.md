@@ -1,4 +1,4 @@
-# Chapter 15: The Unhollow
+# Chapter 16: The Unhollow
 
 The recruitment center squatted in Merchant's Row like a tumor—a converted warehouse with clean walls and welcoming lanterns. Twenty paces from the nearest building. Guards at every entrance. Too many exits to watch.
 

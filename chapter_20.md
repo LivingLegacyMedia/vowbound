@@ -1,4 +1,4 @@
-# Chapter 19: Freely Given
+# Chapter 20: Freely Given
 
 Cassian returned to the palace just before dawn, exhausted from the confrontation. His clothes were still damp, and the coins felt heavier than ever in his pocket.
 

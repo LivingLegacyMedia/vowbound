@@ -1,4 +1,4 @@
-# Chapter 11: Stolen Power
+# Chapter 12: Stolen Power
 
 "Terms?" Draven's laugh echoed through the ruined aqueduct. "You're surrounded by my soldiers, your ally has already betrayed you, and you think you're in a position to negotiate terms?"
 
@@ -66,7 +66,7 @@ But Korrin's hands closed tighter around the coin. His hollow eyes flickered—o
 
 *a few seconds earlier...*
 
-The gray space had opened around Cassian—the Silent Market, the place between places where the Law itself could be bargained with directly. He'd only entered it once before, when his father had guided him through his first bond. Now he was alone.
+The gray space had opened around Cassian—the Silent Market, the place between places where the Law itself could be bargained with directly.
 
 The space was vast and empty. Not dark, not light. Just... neutral. And in the center, waiting as it always waited, was the presence he'd felt before. Not a person. Not even a consciousness, exactly. Just the Law itself, ready to enforce any exchange properly offered.
 

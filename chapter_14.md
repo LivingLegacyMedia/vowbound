@@ -1,4 +1,4 @@
-# Chapter 13: Seeds in Ash
+# Chapter 14: Seeds in Ash
 
 The emissary stood near the fountain in the east market, watching the crowd with practiced patience. To anyone else, he looked like a kind middle-aged man taking in the morning air. But Cassian had been studying him for three days, and he knew better.
 

@@ -1,4 +1,4 @@
-# Chapter 12: The Price of Victory
+# Chapter 13: The Price of Victory
 
 They found Torin exactly where they'd left him.
 

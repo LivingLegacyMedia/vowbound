@@ -1,4 +1,4 @@
-# Chapter 18: The Thread Between Minds
+# Chapter 19: The Thread Between Minds
 
 The connection was fragile—like hearing a voice through walls and water, distant but unmistakable.
 
