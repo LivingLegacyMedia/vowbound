@@ -74,7 +74,7 @@ She looked up suddenly and caught him watching. He looked away quickly, but not 
 
 "Do you." She studied him for a moment. "Let me guess—merchant? No, too poor. Messenger? Close, but not quite." Her eyes narrowed. "Ledger-keeper. You have that look. Like you see numbers in everything."
 
-Despite himself, Cassian smiled. "That obvious?"
+A hint of a smile crossed his face. "That obvious?"
 
 "It takes one to know one." She gestured to the empty chair across from her. "I'm Mira. And I'm trying to figure out if I can afford to stay in this city another three days or if I need to give up and go home."
 

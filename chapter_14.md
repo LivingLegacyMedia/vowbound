@@ -474,7 +474,7 @@ Cassian blinked, still trying to wake his weary body. But he was glad to hear th
 
 Torin nodded slowly. "Then we should continue. I don't want to waste time."
 
-Despite the exhaustion—Cassian smiled. There it was again. That flicker of who Torin had been. Brilliant, driven, impatient with inefficiency.
+Exhausted as he was, Cassian couldn't help but smile. There it was again. That flicker of who Torin had been. Brilliant, driven, impatient with inefficiency.
 
 Not gone. Just buried. Waiting to grow back.
 

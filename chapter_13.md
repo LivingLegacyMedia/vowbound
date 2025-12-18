@@ -146,7 +146,7 @@ Torin looked at him. "You think the desire to understand my own gaps is evidence
 
 For a long moment, Torin was silent. Then: "That's annoyingly logical."
 
-Despite everything, Cassian smiled. There—*there* was a flicker of the person Torin had been. Brilliant, curious, methodical. Buried under layers of damage but not gone. Not entirely.
+Cassian felt the corners of his mouth lift. There—*there* was a flicker of the person Torin had been. Brilliant, curious, methodical. Buried under layers of damage but not gone. Not entirely.
 
 "Then we'll start tomorrow," Cassian said. "One hour each day. I'll teach you to sense the gaps in your mind, recognize what's missing, and practice growing new connections. It'll be hard. Probably frustrating. And you might decide partway through that you prefer the clarity of this state to the messiness of emotions. That's your choice. But at least you'll make it knowing what both options actually feel like."
 

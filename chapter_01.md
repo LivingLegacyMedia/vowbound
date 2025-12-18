@@ -150,7 +150,11 @@ He stepped back, blinking against the sting in his eyes that he told himself was
 
 Brother Marcus concluded the ceremony with a final blessing. The gravediggers moved forward, and the coffin was lowered into the earth with a creaking of ropes. It settled at the bottom with a muffled thump that seemed too final, too absolute.
 
-The mourners dispersed quickly—there would be no gathering afterward, no shared meal. Rowan had no close friends left, and Cassian had no money to host one. Master Grenn touched his shoulder briefly as he passed, saying nothing. Clerk Hennis met his eyes and nodded, something like respect in his expression.
+The mourners dispersed quickly—there would be no gathering afterward, no shared meal. Rowan had no close friends left, and Cassian had no money to host one. Master Grenn touched his shoulder briefly as he passed. "Terrible thing, that accident," the baker murmured. "The road to Thornhaven's always been treacherous, but still..."
+
+Cassian nodded. An accident. An overturned carriage. His father was gone, and the how of it didn't matter now.
+
+Clerk Hennis met his eyes and nodded, something like respect in his expression.
 
 Then Cassian was alone on the hilltop, just him and the gravediggers who waited at a polite distance for him to leave so they could finish their work.
 

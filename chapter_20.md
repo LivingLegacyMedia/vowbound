@@ -136,7 +136,7 @@ Through their connection, he felt her grief—raw and overwhelming. Not just fea
 
 "When this is over," she said quietly, "when you somehow survive this insanity—we're going to have a long conversation about your definition of 'trying.'"
 
-Despite everything, he almost smiled. "Deal."
+His lips twitched. "Deal."
 
 The space began to fade. The connection couldn't hold much longer.
 
