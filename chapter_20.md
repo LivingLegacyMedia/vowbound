@@ -280,55 +280,93 @@ King Aldric entered the tent as Mira's presence faded. "The truce will hold for 
 
 ---
 
-Three months later, Cassian stood on the city walls at sunset, both coins warm in his pockets.
+Three months later.
 
-The network was growing. Not through coercion or deception, but through example. People who'd volunteered in the fight were teaching others. Towns were forming mutual aid societies. Refugees were learning restoration techniques.
+Cassian kicked open the door to the compound, eighty-seven volunteers at his back.
 
-It was slow. Fragile. Constantly threatened by Draven's agents working to undermine it.
+The Emissary inside looked up from her desk—one of Draven's agents, recently arrived to rebuild the network in the eastern district. Her eyes widened as she recognized him.
 
-But it was real. He could feel the shimmer of connections across the capital—not the forced tethers of Draven's network, but freely chosen cooperation. People helping each other because they chose to, not because they had to.
+"You can't—"
 
-Through his mental connection to Mira, he felt her presence touch his mind. She was still bound to Draven, still held in his western stronghold, but their link remained strong.
+"I can." Cassian crossed the room in three strides. Through the Coin of Heads, he could see her network—two hundred Hollow tethered to her, their vitality being siphoned involuntarily. "You've been taking without consent. That ends now."
 
-*Intelligence reports are in,* her voice came through the gray space. *Draven's found another Emissary candidate. Someone powerful in the southern territories.*
+She reached for the alarm bell, but Torin was faster. His blade pinned her hand to the desk.
 
-*We'll deal with it.* Cassian replied.
+"Scream if you want," Torin said. "We own this district now."
 
-*And the King's scouts report possible locations of the Coin of Wheels. Multiple kingdoms are searching for it.*
+Cassian reached out through the technique he had learned—finding the central tether that connected the Emissary to Draven's greater network. He could feel the stolen vitality pulsing through it, two hundred lives reduced to fuel.
 
-*We'll deal with that too.*
+He severed it.
 
-*You sound confident for someone who barely survived your last fight.*
+The Emissary shrieked as the connection broke. Around the district, two hundred Hollow gasped as their bonds shattered. Some collapsed. Others stood frozen, feeling freedom for the first time in years.
 
-*I sound realistic. This isn't about one battle. It's about building something that lasts.* He projected warmth through the connection. *Something Draven can't corrupt.*
+But Cassian wasn't done. He turned to the volunteers who'd followed him—former Hollow, restoration experts, people who'd learned what freely given actually meant. "Get them stabilized. Anyone who wants reconnection, they choose their path. No coercion. No lies."
 
-He felt her concern through the bond. *And what about me? Still bound to him. Still his leverage over you.*
+The volunteers scattered, moving to help the newly freed Hollow who were stumbling through the streets.
 
-*We'll break the binding. Eventually. When we understand the Law well enough to satisfy it.*
+The Emissary clutched her chest, feeling the sudden emptiness. "Draven will—"
 
-*That could take years.*
+"Draven is rebuilding in the west," Cassian interrupted. "I'm rebuilding here. And every day, I'm going to dismantle one more piece of his network until he has nothing left to stand on."
 
-*Then we have years.* Cassian looked out over the city, at the people moving through streets, making choices, living freely. *You're not alone in this. Neither am I.*
+Through his mental connection to Mira, he felt her presence surge with fierce approval. She was still bound to Draven, still trapped in his western stronghold, but watching through their link.
 
-A long pause. Then: *Don't make promises you can't keep.*
+*That's more like it,* she sent. *Quit studying and start breaking things.*
 
-*I don't plan to.*
+*I learned from the best,* he replied, feeling her grim satisfaction echo back.
 
-He felt her wry amusement. *You sound confident.*
+He looked at the Emissary—defeated, disconnected, powerless. Three months ago, he'd fought Draven to a standstill and barely survived. The Supreme Voice had retreated, wounded but alive, to rebuild his strength.
 
-*I'm not. But I'm committed.* Cassian leaned against the wall, feeling the weight of both coins, the responsibility they carried. *Draven's still out there. Still powerful. Still dangerous. But he's not unstoppable. We proved that.*
+Fine. Let him rebuild.
 
-*And you're going to spend the rest of your life proving it again and again, aren't you?*
+Because Cassian was rebuilding too. Not just gathering allies or forming networks, but actively hunting Draven's agents. Severing connections. Freeing Hollow. Taking back territory one district at a time.
 
-*Probably.* He smiled, knowing she could feel it through the bond. *Someone has to.*
+King Aldric's intelligence network had identified seventeen of Draven's remaining Emissaries. This was the eighth one Cassian had personally disconnected. Nine more to go.
 
-*Then I'll be with you. However long it takes. Even if it's just through this connection.*
+"Tell your master something," Cassian said to the former Emissary. "Tell him I'm not waiting for him to come to me. Tell him I'm coming for every piece of his network, every enslaved Hollow, every forced connection. And when I've dismantled enough of it, I'm coming for him."
 
-Below, the city began lighting evening lanterns. The network hummed with quiet activity—people choosing to help each other, choosing to resist, choosing to build something better.
+He turned and walked out, his volunteers falling in behind him. Outside, the newly freed Hollow were being stabilized, given water, offered choices instead of commands.
 
-It wasn't victory. Not yet.
+Some would accept reconnection—to the cooperative network Cassian was building, where power flowed freely instead of being stolen. Others would refuse, wanting nothing to do with any network ever again.
 
-But it was a start.
+Both were valid. Both were *choices*.
+
+That was what Draven would never understand. Why he'd ultimately lose.
+
+Cassian felt the evening breeze, the weight of both coins in his pockets, the pulse of eighty-seven willing connections humming through the network. Not thousands. Not yet.
+
+But growing. Every freed district. Every severed Emissary. Every person who chose cooperation over coercion.
+
+His father had tried to build something better and died for it.
+
+Mira was still suffering for believing in it.
+
+And Cassian? He was going to finish what they'd started. Through action. Through tearing down Draven's empire piece by piece until there was nothing left but the choice: change or fall.
+
+Torin caught up to him. "Next target?"
+
+Cassian pulled out the map marked with Draven's remaining strongholds. "The compound in the merchant district. They've been taking children."
+
+"When?"
+
+"Tonight."
+
+Torin grinned—the fierce expression of someone who'd spent too long broken and was finally getting to break something back. "Good."
+
+Somewhere in the west, Draven was rebuilding. Plotting. Preparing for their next confrontation.
+
+Let him prepare.
+
+Cassian was done waiting for permission to fight. Done hoping for peaceful solutions with people who dealt in slavery. Done being careful.
+
+He'd made the Supreme Voice bleed once.
+
+Next time, he'd make him fall.
+
+The volunteers moved through the district like a storm, freeing the enslaved, offering choices to the desperate, building something that couldn't be broken by force alone.
+
+And in the fading light, Cassian smiled.
+
+This was just the beginning.
 
 ---
 
