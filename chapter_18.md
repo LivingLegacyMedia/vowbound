@@ -236,7 +236,7 @@ She looked up as he approached, her eyes widening. For a moment, pure relief flo
 
 Cassian spun.
 
-Draven Kane stood at the corridor entrance, backlit by lamplight. Cassian recognized him instantly from the aqueduct—the same handsome severity, the same impeccable bearing, the same air of absolute control. Around his neck hung the golden locket, and from it Cassian could sense the familiar presence of the Coin of Oxen, pulsing with restrained power.
+Draven Kane stood at the corridor entrance, backlit by lamplight. Cassian recognized him instantly from the aqueduct—the same handsome severity, the same impeccable bearing, the same air of absolute control. Around his neck hung a golden locket—the Coin of Oxen inside, its black face covered to redirect the cost onto his network. At his belt, a second smaller locket held the Coin of Waters.
 
 "Hello again, Cassian," Draven said, his voice cultured and warm. "I knew you'd come. We have so much more to discuss than our last conversation allowed."
 
@@ -258,7 +258,7 @@ Cassian's mind raced. Two coins. Draven had bonded with two, just like him.
 
 "I make them submit. Oxen dominates the others. Bends them to my will."
 
-He touched the locket gently. "When I claim all seven..." His eyes gleamed. "I'll have power beyond anything this world has seen in a thousand years."
+He touched the locket hanging from his neck. "When I claim all seven..." His eyes gleamed. "I'll have power beyond anything this world has seen in a thousand years."
 
 "To do what?" Cassian demanded. "Rule? Conquer?"
 
@@ -272,7 +272,7 @@ He touched the locket gently. "When I claim all seven..." His eyes gleamed. "I'l
 
 "I offer clarity. The Law accepts their consent. That's all that matters." Draven's smile widened. "But I didn't bring you here to debate philosophy. We both know you can't stop me through force. Your little escape at the aqueduct was impressive, but temporary. I still have my network. Still have thousands who've accepted my vision."
 
-He paused, his expression darkening slightly. "Your father understood that, eventually. Three months ago, he discovered I was collecting the coins. He tried to convince me to stop. When I refused, he challenged me to single combat—insisted on it, actually. Very noble. Very foolish." Draven touched his locket almost fondly. "The Coin of Oxen grants me strength beyond mortal limits. Your father fought bravely, but he was no match for me."
+He paused, his expression darkening slightly. "Your father understood that, eventually. Three months ago, he discovered I was collecting the coins. He tried to convince me to stop. When I refused, he challenged me to single combat—insisted on it, actually. Very noble. Very foolish." Draven touched the locket dangling at his chest. "The Coin of Oxen grants me strength beyond mortal limits. Your father fought bravely, but he was no match for me."
 
 Cassian's blood went cold. "You... you fought my father?"
 

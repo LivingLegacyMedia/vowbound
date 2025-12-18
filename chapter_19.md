@@ -318,7 +318,7 @@ Cassian nodded. He'd expected that. But he'd had to try one last time.
 
 He turned toward the mill entrance just as Draven emerged.
 
-The Supreme Voice looked exactly as Cassian remembered—handsome, composed, radiating confidence. The golden locket gleamed at his throat, the caged Coin of Waters visible through its filigree. Somewhere within him, bonded and active, the Coin of Oxen granted him inhuman strength.
+The Supreme Voice looked exactly as Cassian remembered—handsome, composed, radiating confidence. A golden locket gleamed at his chest—the caged Coin of Oxen, its black face covered to redirect the cost. A second, smaller locket hung at his belt, the Coin of Waters. Two coins bonded to one man, just like Cassian—but Draven had years more experience.
 
 "Cassian." Draven's voice carried across the plains, warm and measured. "I'm glad you came. Shall we discuss terms like reasonable men?"
 
